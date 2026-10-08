@@ -657,3 +657,31 @@ Majima (6: show/duelo/jugo/caída/prófugo/sonrisa) + SFX eco. Yoshi (5: amable/
 - **Charm extra (búho falso N17):** broma Kurumi → susto Jesús → lección Alan. Símbolo: precio.
 - **Sake Jin? (NO: Jin toma café):** café negro + silencio. N24 brindis (habla 4 palabras: "Buena… familia. Cuídenla."). Símbolo: gris bueno.
 *FIN W — FIN v2.3 — Verificar ~90 kB — Ale 2026-10-07 — Siguiente 05 (~90 kB). ❤️💙*
+
+---
+
+## Apéndice X. Cast secundario: voces y anécdotas (prensa + radio + eventos)
+- **Matsuoka Yoshitsugu (Majima):** Kirito→Majima shock deliberado (mismo Adachi-verso SAO). Rango: etéreo (Kirito) → salvaje (Inosuke) → showman (Majima). Radio/eventos: ríe del jugo E13 ("¿descanso? ¡Quiero más!"). I'm Enterprise; Yoyogi + Nichinare. Lección voz: héroe que se ríe = villano que encanta.
+- **Ueda Yōji (Yoshi):** teatro (Bungakuza→Ezaki) + Amuleto. Voz ejecutiva con filo trágico. Bar E7: grabó ascensor en 1 toma (tensión real). Muerte E13: pidió grabar llorando de verdad (Mika llora; Yoshi… acepta). Lección: villano educado duele más.
+- **Sakakibara Yūki (Robota):** 81 Produce, AMGs joven. Glitch con garganta (efectos mínimos). Guerra E8–E11: grabó vs Kuno (Kurumi) en cabina junta (piques reales). Jack E10: gritó "¡al aire!" hasta afónico. Lección: segundón grita más.
+- **Otani Satomi (Himegama):** Across; niños (Bakutsuri) → cuchilla. Pocas líneas, todas filo. KO E13: 1 grito ("…¡!") + silencio (Mika). Lección: sombra habla poco.
+- **Sawakai Yōko (Kusunoki):** veterana mando. Té + órdenes + purga mintiendo (E12 grabó 3 versiones: dura/media/rota; eligieron media = mando que sangra por dentro). Hawái call: sonrió 1mm (herencia Takina, dice fandom). Lección: generala-mamá.
+- **Kawase Maki (Fuki):** Nichinare. Golpe E1: gritó de verdad (Wakayama lloró real; abrazo post-toma). Transfusión E13: susurró (creció). S6 visita: rió con Mika-SFX (ship-tease broma cast). Cumple Fuki 9/24: cast festejó con Chisato 9/23 (doble, como N18!). Lección: puño→mano audible.
+- **Koichi Makoto (Sakura):** risa S5 en 1 toma (sala estalló; director: "¡esa!"). Fiebre S6: grabó afónica real (método). Juegos: juega de verdad (N15 canon-espiritual). Ayaki teatro = meta (misma Sakura). Lección: risa no se actúa.
+- **Yagami Yuka (Erika):** disculpas E1–E10 (bajito), E11 "puedo" (firme), S6 perdón (llanto dulce). Arco audible en 3 palabras. Lección: perdón se oye.
+- **Teatro secundarios:** Saegusa (Kusunoki mando-mamá escénica), Tagami (Fuki puños reales), Ayaki (Sakura risa en vivo), Ono (Yoshi traje cruel), Shintani (Himegama tacones-arma), Takeuchi (Robota glitch físico). BD making: puños + tacones + trajes.
+- **Jin seiyū:** pendiente v2.4 (BD booklet). Predicción fandom: veterano susurro. NO afirmar.
+
+## Apéndice Y. Vestuario + SFX secundarios (guía escena/arte)
+- **Majima:** chaqueta + verde + smartphone-switch + explosivos. SFX: eco-bat (ping), risa show, jack-alarma, hanabi. Cambio: limpio E4 → roto E13 → prófugo (capucha?*).
+- **Yoshi:** trajes (gris→negro: cae) + maletín + charm. SFX: ascensor, maletín-click, disparo final. Cambio: impecable→rehén→muerto.
+- **Robota:** capucha + pantallas + drones. SFX: modem, glitch, "¡al aire!", huida. Cambio: sombra→cabina→fantasma.
+- **Himegama:** secretaria + enfermera + táctico. SFX: tacones, maletín, KO (silencio). Cambio: filo→carga→cae.
+- **Kusunoki:** traje mando + té + orden purga (bolsillo). SFX: sello, teléfono, "retirada". Cambio: mando→degradada→madre.
+- **Fuki:** First roja + puños + transfusión kit E13. SFX: golpe, grito, "decidí". Cambio: puño→mano.
+- **Sakura:** Second + vendas E13 + risa S5 + termómetro S6. SFX: "¡voy!", risa, "39…". Cambio: niña→guerrera→meme.
+- **Erika:** Second + culpa→firmeza. SFX: "perdón"→"puedo". Cambio: rehén→luchadora.
+- **LilyBell:** blanco + rojo capitán + suzuran + rifles + radio. SFX: botas, radio, duda (N20: click apagado). Cambio: pared→grieta.
+- **Jin:** traje + maletín + café. SFX: silencio, "buen brazo", "habló!". Cambio: sombra→tío.
+- **Civiles:** Matsushita (máquinas→postal), Saori (cámara→boda), Abe (libreta+gato), mangaka (pluma VIVE), oyabun (anillo), Onuma (mic 500M). SFX: shutter, maullido, brindis, flash.
+*FIN Y — FIN v2.4 — Verificar ~90 kB — Ale 2026-10-07 — Siguiente 05 (~90 kB). ❤️💙*
