@@ -153,6 +153,8 @@ Y así, entre la rubia que reía, la morena que negaba un espasmo y el dueño qu
 
 —Entonces... ¿estoy contratado? —preguntó.
 
+Lo preguntó en broma, pero por dentro hizo cuentas a toda velocidad, como llevaba haciendo desde que compró el boleto de avión: la renta del cuarto, el pase del tren, la comida, los libros. Abuela Rosa le había dado un sobre con dinero —*para emergencias, mijo, y no me discutas*— y él había decidido no tocarlo salvo que se estuviera muriendo. Un trabajo en cuarenta segundos, sin entrevista, sin papeles, sin nada, sonaba a broma. Pero la broma pagaba renta. Y Jesús, que a los dieciocho años ya sabía cuánto costaba cada cosa en dos monedas distintas, sintió que se le aflojaba un nudo que traía apretado desde Guadalajara. Trabajo. Tenía trabajo. Podía respirar. Literalmente: respirar le salía más barato con trabajo.
+
 —¡Desde que atajaste! —dijo Chisato—. ¡Jesus-Chan! ¡Así te voy a decir! ¡Suena a anime de los domingos!
 
 —Suena a... ¿qué? —Jesús parpadeó—. Me llamo Jesús, a secas está bien, oye—
