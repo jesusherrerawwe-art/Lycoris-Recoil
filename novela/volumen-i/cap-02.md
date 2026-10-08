@@ -130,7 +130,7 @@ El semicírculo aplaudió, educado. Jesús hizo una reverencia automática —el
 
 —¡Claro! ¡Elige al que quieras! ¡Todos pierden igual!
 
-El semicírculo se rió. Jesús eligió a su peleador de siempre —el luchador equilibrado, ni rápido ni fuerte, el de los jugadores pacientes—, metió la moneda, y el juego rugió: *¡PELEA UNO! ¡EMPIECEN!*
+El semicírculo se rio. Jesús eligió a su peleador de siempre —el luchador equilibrado, ni rápido ni fuerte, el de los jugadores pacientes—, metió la moneda, y el juego rugió: *¡PELEA UNO! ¡EMPIECEN!*
 
 Lo que pasó en los siguientes cuatro minutos, Jesús lo recordaría después con la claridad con que se recuerdan los accidentes: por fragmentos, a toda velocidad, sin entender bien el orden.
 
@@ -292,7 +292,7 @@ Takina no contó la historia prohibida. En su lugar, le contó —bajito, mientr
 
 —Así —Takina hizo un gesto vago con la mano—. ...Despreocupado. Como si nada te alcanzara.
 
-Jesús se rió bajito.
+Jesús se rio bajito.
 
 —Se me da bien parecerlo. Por dentro... —se tocó el pecho, donde el corazón latía tranquilo por una vez— ...por dentro también hay ruido. Solo que aprendí a bajarle el volumen.
 
@@ -350,7 +350,7 @@ Caminó a casa bajo una llovizna fina, con la capucha puesta para proteger el ti
 
 En su cuarto de seis tatamis, se paró frente al pedacito de espejo de la pared y se miró largo rato. Rubio. Era rubio. Su primo se iba a burlar una semana entera. Abuela Rosa iba a decir "pareces elote" y luego iba a llorar de la risa. Y su mamá —su mamá, que le cortaba el pelo negro en la cocina de Osaka con tijeras sin filo y le decía "quédate quieto, erizo"— su mamá nunca lo vería rubio.
 
-Se le aguaron los ojos, un poco. Solo un poco. Se los secó con la toalla y le mandó la foto a Sakura —le había prometido el antes y el después, y un trato era un trato— y a Abuela Rosa ("RUBIO, abuelita. Perdí un trato." —"¿QUÉ TE HICISTE, MIJO?" —"Es largo de contar." —"¡PARECES ELOTE!" —"¡ABUELITA!"), dudó un momento con el dedo sobre el chat de su primo, y al final también le mandó la foto. *Mira. Perdí un trato. Soy rubio. El P2 ahora es güero.* La respuesta tardó veinte minutos: *jaja te ves raro. cuídate.* Nada más. Ni un juego de palabras, ni una burla de verdad, ni un "a ver cuándo jugamos". Jesús miró esas tres palabras —*cuídate*, otra vez *cuídate*— y sintió esa cosita agria en el pecho, la de la consola que alguien apaga poco a poco. *Tú también*, escribió. Y apagó la pantalla sin esperar más. y después se acostó con los audífonos puestos, lluvia grabada más lluvia real, y pensó en el día entero: en los tambores y la risa imposible de Sakura, en la mirada complicada de Fuki, en los cuatro minutos de derrota gloriosa, en el olor a alberca del decolorante, en las manos cuidadosas de Takina bajo el agua tibia.
+Se le aguaron los ojos, un poco. Solo un poco. Se los secó con la toalla y le mandó la foto a Sakura —le había prometido el antes y el después, y un trato era un trato— y a Abuela Rosa ("RUBIO, abuelita. Perdí un trato." —"¿QUÉ TE HICISTE, MIJO?" —"Es largo de contar." —"¡PARECES ELOTE!" —"¡ABUELITA!"), dudó un momento con el dedo sobre los mensajes de su primo, y al final también le mandó la foto. *Mira. Perdí un trato. Soy rubio. El P2 ahora es güero.* La respuesta tardó veinte minutos: *jaja te ves raro. cuídate.* Nada más. Ni un juego de palabras, ni una burla de verdad, ni un "a ver cuándo jugamos". Jesús miró esas tres palabras —*cuídate*, otra vez *cuídate*— y sintió esa cosita agria en el pecho, la de la consola que alguien apaga poco a poco. *Tú también*, escribió. Y apagó la pantalla sin esperar más. y después se acostó con los audífonos puestos, lluvia grabada más lluvia real, y pensó en el día entero: en los tambores y la risa imposible de Sakura, en la mirada complicada de Fuki, en los cuatro minutos de derrota gloriosa, en el olor a alberca del decolorante, en las manos cuidadosas de Takina bajo el agua tibia.
 
 *Te veías mejor de negro.*
 

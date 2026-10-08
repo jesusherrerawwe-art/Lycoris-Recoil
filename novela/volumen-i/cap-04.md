@@ -26,7 +26,7 @@ La gimnasia —le explicó Obaa después, a gritos amables entre ejercicio y eje
 
 —¡Hasta en año nuevo! —repitió un señor calvo de la primera fila, orgulloso, haciendo una sentadilla perfecta que Jesús no pudo imitar ni a medias.
 
-—¡Mira al mexicano! —se rió una señora—. ¡Está tieso! ¡Como palo!
+—¡Mira al mexicano! —se rio una señora—. ¡Está tieso! ¡Como palo!
 
 —¡Es joven! ¡Los jóvenes están tiesos por dentro! —dijo otro.
 
@@ -152,7 +152,7 @@ A media lección llegó la mamá de Yuto con una caja de bolas de arroz envuelta
 
 —¡POR SI ACASO QUÉ? —preguntó Yuto.
 
-—¡Por si acaso aparece un alumno nuevo! —dijo Jesús, y la mamá de Yuto se rió y aceptó, y por media hora fueron cuatro alumnos y un maestro feliz en el pasto del parque, con bolas de arroz de recreo y el sol de verano pintándolo todo de domingo.
+—¡Por si acaso aparece un alumno nuevo! —dijo Jesús, y la mamá de Yuto se rio y aceptó, y por media hora fueron cuatro alumnos y un maestro feliz en el pasto del parque, con bolas de arroz de recreo y el sol de verano pintándolo todo de domingo.
 
 Después de las cartas vino el futbol. Porque el de la gorra vio el balón, el del raspón gritó "¡RETAS!", Yuto gritó "¡EL MEXICANO ES PORTERO!", y Jesús —que llevaba una semana sin jugar, que traía el balón extrañándolo desde Guadalajara— dijo que sí antes de pensarlo.
 
@@ -192,7 +192,7 @@ Todavía no.
 
 —¡PENALES! —gritó el de la gorra, recuperando el mando—. ¡Para cerrar! ¡Cinco penales! ¡Si el mexicano tapa tres, es el mejor portero del parque!
 
-—¡Y SI NO? —preguntó Jesús.
+—¿Y SI NO? —preguntó Jesús.
 
 —¡TAMBIÉN! ¡PERO CON MENOS GRITOS!
 
@@ -252,7 +252,7 @@ Obaa le llamó a su nieto. El nieto contestó —un joven cansado, de traje, en 
 
 —¡Hola! —saludó Jesús, apenado, saludando a la pantalla—. Soy... soy Jesús. Del café. Cuido... bueno, su abuela me cuida a mí, la verdad. Pero yo le cuido el teléfono.
 
-El nieto se rió. Se rió de verdad, y se le quitó un poco lo cansado de la cara.
+El nieto se rio. Se rio de verdad, y se le quitó un poco lo cansado de la cara.
 
 —Gracias —dijo, serio de pronto—. Gracias por estar ahí. Yo... no puedo ir tanto como quisiera. Cuídala. Por favor.
 
@@ -272,7 +272,7 @@ Obaa lo miró con esos ojos que lo veían todo. Después se levantó, fue a un c
 
 —Por si acaso aparecía alguien que lo necesitara —dijo Obaa, simple—. Te vi hoy. En la banca. Con tu... aparatito. —Señaló su propio pecho, discreta—. No te apenes. Mi esposo también tenía los pulmones débiles. Vivió ochenta años. Ochenta. Con aparato y todo. Llévate el amuleto. Para que respires tranquilo.
 
-Jesús se quedó mirando el amuleto. Después miró a Obaa. Después, sin decir palabra, la abrazó. Fuerte. Como se abrazaba a Abuela Rosa. Obaa se rió, sorprendida, y le palmeó la espalda.
+Jesús se quedó mirando el amuleto. Después miró a Obaa. Después, sin decir palabra, la abrazó. Fuerte. Como se abrazaba a Abuela Rosa. Obaa se rio, sorprendida, y le palmeó la espalda.
 
 —¡Ya, ya! ¡Me vas a romper! ¡Soy vieja!
 
@@ -298,11 +298,11 @@ Silencio al otro lado. Un silencio largo. Peligroso.
 
 —Se llama Obaa. Me dio mandarinas, me selló la mano con una florecita, me dio de comer guiso, y me regaló un amuleto para los pulmones. Es como tú, pero en japonés.
 
-—¡YO SOY LA ORIGINAL! —protestó Abuela Rosa—. ¡LA DE GUADALAJARA! ¡LA DEL POZOLE! ¡LA QUE TE CRIÓ! ¡QUE NO SE TE OLVIDE!
+—¡YO SOY LA ORIGINAL! —protestó Abuela Rosa—. ¡LA DE GUADALAJARA! ¡LA DEL POZOLE! ¡LA QUE TE CRIO! ¡QUE NO SE TE OLVIDE!
 
 —¡Nunca se me olvida! ¡Tú eres la original! ¡Ella es... la edición japonesa! ¡Coleccionable!
 
-—¡EDICIÓN JAPONESA! —Abuela Rosa se rió tanto que tosió—. ¡Ay, mijo! ¡Está bien! ¡Puedes tener dos! ¡Pero la original soy yo! ¡Y dile a esa señora que si te da guiso, yo te mando pozole! ¡A ver quién gana!
+—¡EDICIÓN JAPONESA! —Abuela Rosa se rio tanto que tosió—. ¡Ay, mijo! ¡Está bien! ¡Puedes tener dos! ¡Pero la original soy yo! ¡Y dile a esa señora que si te da guiso, yo te mando pozole! ¡A ver quién gana!
 
 —Le digo, abuelita. Oye... te quiero. Gracias por enseñarme a querer a las abuelas. Me está sirviendo en dos países.
 
@@ -314,7 +314,7 @@ Colgó. Y entonces el teléfono vibró. Número conocido esta vez. Mensaje nuevo
 
 > *Soy Kurumi. Reporte: sobreviviste al barrio. Lo sé todo. PD: Obaa me mandó foto de tu sello de florecita. La guardé. Es chantaje futuro. PD2: mañana a las diez en mi cueva, no se te olvide. Trae flanes. Debes tres. PD3: ¿metiste gol o te metieron?*
 
-Jesús se rió bajito y contestó:
+Jesús se rio bajito y contestó:
 
 > *Me metieron uno. El mejor gol de mi vida. Y Kurumi: si usas mi florecita para chantaje, te acuso con Obaa. Ella sí da miedo.*
 

@@ -30,7 +30,7 @@ El LycoReco de las nueve de la mañana era otro animal: oficinistas con prisa pi
 
 —¡Del aeropuerto, Obaa! —gritó Chisato desde la barra—. ¡Viene en paquete de México! ¡Hay más, pero este fue el que pedimos!
 
-—¡Pidan otro! —dijo la señora, y todo el café se rió, y Jesús se rió también, rojo hasta las orejas teñidas, pensando que los clientes de ese lugar trataban a los meseros como sobrinos y que eso —eso era exactamente lo que una casa debía sentirse.
+—¡Pidan otro! —dijo la señora, y todo el café se rio, y Jesús se rio también, rojo hasta las orejas teñidas, pensando que los clientes de ese lugar trataban a los meseros como sobrinos y que eso —eso era exactamente lo que una casa debía sentirse.
 
 Después de Obaa vinieron los estudiantes desvelados —tres muchachos con ojeras de panda honorarias que pidieron el desayuno de la casa y se quedaron dormidos por turnos sobre la mesa, relevándose como guardias— y Jesús aprendió su primera lección de mesero veterano: nunca despiertes a un cliente dormido, solo ponle la cuenta cerca y espera. Después vino una pareja joven que discutía en susurros sobre a dónde ir de vacaciones, y Jesús, nuevo e ingenuo, les sugirió Guadalajara —"¡vayan a Guadalajara! ¡Hay mariachi y tortas ahogadas!"— y la pareja lo miró, se miró, y se echó a reír, y la discusión se acabó, y le dejaron propina doble con una notita: *gracias, mexicano, ya decidimos: vamos a Guadalajara.* Y después vino su primer error grave: llevó un café sin leche a la mesa equivocada, a una señora que lo miró como si le hubiera servido veneno.
 
@@ -120,7 +120,7 @@ Jesús se quedó mirando la puerta.
 
 —¿Consejos de amor? —Jesús arqueó una ceja—. ¿Chisato da consejos de amor?
 
-—Malos —dijeron Mika, Takina y Mizuki al mismo tiempo, y todo el café se rió, incluida la señora Obaa, que gritó "¡PÉSIMOS!" desde su mesa, y Jesús decidió no preguntar más, porque algunas respuestas claramente dolían.
+—Malos —dijeron Mika, Takina y Mizuki al mismo tiempo, y todo el café se rio, incluida la señora Obaa, que gritó "¡PÉSIMOS!" desde su mesa, y Jesús decidió no preguntar más, porque algunas respuestas claramente dolían.
 
 Lo que sí preguntó, una hora después, cuando oyó un golpeteo rítmico y sordo viniendo de *abajo* —*pum... pum-pum... pum...*— como si alguien golpeara una pared acolchada en el sótano, fue:
 
@@ -176,7 +176,7 @@ Jesús miró a Takina. Miró a Mizuki. Suspiró el suspiro de Suiza, el país ne
 
 —¡Qué pad...! —Mizuki se calló a tiempo—. ...Buenas tardes. Por favor. —Se sentó, rezongando—. Este café no me deja crecer como persona bilingüe.
 
-Jesús se rió tanto que casi tira el vaso de agua. Y fue en ese momento —con la risa todavía en la boca— cuando oyó, clarito, viniendo del techo, a través de una rejilla de ventilación que no había notado hasta entonces, una vocecita aguda e imperiosa que gritó:
+Jesús se rio tanto que casi tira el vaso de agua. Y fue en ese momento —con la risa todavía en la boca— cuando oyó, clarito, viniendo del techo, a través de una rejilla de ventilación que no había notado hasta entonces, una vocecita aguda e imperiosa que gritó:
 
 —¡FLAAAAN! ¡QUIERO FLAN! ¡Y QUE LO SUBA EL RUBIO NUEVO! ¡QUIERO VER SI ES RUBIO DE VERDAD O DE MENTIRAS!
 
@@ -234,7 +234,7 @@ Jesús se quedó helado.
 
 —Puedo —dijo Kurumi—. Y lo hice. Y te dejé un regalo: te cerré treinta pestañas y te actualicé todo. De nada. Me debes un flan. Este flan no cuenta, este flan era mío desde antes. Me debes OTRO flan.
 
-Jesús abrió la boca. La cerró. La volvió a abrir. Y entonces, sin poder evitarlo, se rió. Se rió a carcajadas, doblado en el cojín, porque la niña-muchacha-algo del segundo piso lo había hackeado, lo había insultado, lo había ayudado y le estaba cobrando, todo en menos de un minuto, con flan en la comisura de la boca.
+Jesús abrió la boca. La cerró. La volvió a abrir. Y entonces, sin poder evitarlo, se rio. Se rio a carcajadas, doblado en el cojín, porque la niña-muchacha-algo del segundo piso lo había hackeado, lo había insultado, lo había ayudado y le estaba cobrando, todo en menos de un minuto, con flan en la comisura de la boca.
 
 —¡Me caes bien! —dijo, secándose los ojos—. ¡Eres terrible! ¡Me caes bien!
 
@@ -368,7 +368,7 @@ Antes del mensaje desconocido, hubo una llamada conocida. Abuela Rosa, puntual c
 
 —¡JA!
 
-—Abuela Rosa se rió tanto que se le cortó la voz—. ¡Mijo! ¡En ningún café del mundo sobra un flan! ¡Los flanes no sobran! ¡Esa niña te guardó el flan a propósito!
+—Abuela Rosa se rio tanto que se le cortó la voz—. ¡Mijo! ¡En ningún café del mundo sobra un flan! ¡Los flanes no sobran! ¡Esa niña te guardó el flan a propósito!
 
 —¡Abuelita!
 
