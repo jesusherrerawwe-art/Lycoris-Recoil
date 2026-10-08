@@ -293,7 +293,7 @@ Fue ya acostado, con los audífonos puestos —lluvia grabada más lluvia real e
 
 *Qué raro*, pensó, medio dormido. *Qué padre. Qué... raro.*
 
-Se durmió pensando en parfaits, en ojos rojos, en un espasmo de felicidad negado dos veces, en un hombre amable que había dicho *familia* antes que *equipo*, y en unas tuberías viejas que pateaban muebles en el segundo piso.
+Se durmió pensando en parfaits, en ojos rojos, en un espasmo de felicidad negado dos veces, en un hombre amable que había dicho *familia* antes que *equipo*, en unas tuberías viejas que pateaban muebles en el segundo piso, y en que mañana a las nueve empezaba algo que todavía no tenía nombre, pero que se sentía peligrosamente parecido a un hogar.
 
 No sabía —no podía saber— que acababa de entrar a la familia más ruidosa, más peligrosa y más maravillosa de Tokio.
 
