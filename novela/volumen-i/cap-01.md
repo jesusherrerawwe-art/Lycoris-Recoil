@@ -51,7 +51,13 @@ Jesús arrastró la maleta por el pasillo del apartamento de estudiantes en Sumi
 
 La miró un segundo de más. Luego la puso boca abajo, con cuidado, y fue a bañarse con agua demasiado caliente, como hacía siempre que quería reiniciarse.
 
-A las siete de la noche, con el pelo todavía húmedo, el estómago rugiendo y el mapa del metro abierto en el teléfono, salió a buscar tres cosas en este orden: comida, trabajo y suerte. En Tokio, le había dicho su primo por mensaje, esas tres cosas vivían en la misma cuadra si sabías caminar. Su primo, el Player-1, el de la placa idéntica a la suya —*P1* y *P2*, pacto de arcade, "nunca juegues solo"—, que últimamente tardaba días en contestar y cuyos mensajes cada vez parecían escritos por alguien con prisa. Jesús tocó su placa de *P2* por costumbre y se prometió no pensar en eso hoy.
+A las siete de la noche, con el pelo todavía húmedo, el estómago rugiendo y el mapa del metro abierto en el teléfono, salió a buscar tres cosas en este orden: comida, trabajo y suerte. En Tokio, le había dicho su primo por mensaje, esas tres cosas vivían en la misma cuadra si sabías caminar. Su primo, el Player-1, el de la placa idéntica a la suya —*P1* y *P2*, pacto de arcade, "nunca juegues solo"—, que últimamente tardaba días en contestar y cuyos mensajes cada vez parecían escritos por alguien con prisa. Jesús tocó su placa de *P2* por costumbre y se prometió no pensar en eso hoy. No lo logró, claro. Nunca lo lograba.
+
+El pacto se había sellado hacía cuatro años, en el arcade de Plaza del Sol, un sábado de esos que en Guadalajara huelen a lluvia y a churros. Él tenía catorce, su primo dieciséis, y llevaban tres horas atorados en el jefe final de un juego de naves que les había comido como doscientos pesos en fichas. Cuando por fin lo derrotaron —con un pixel de vida, gritando los dos, abrazándose mientras la máquina cantaba victoria— su primo se quitó una placa del cuello (una réplica de Space Invader que había ganado en una rifa) y le dijo: "Pídeme una igual para tu cumple. Tú eres el P2. Yo soy el P1. Y escúchame bien, primo: nunca juegues solo. ¿Entendido? Pase lo que pase. ¿Entendido?"
+
+—Entendido —había dicho Jesús, solemne como un caballero.
+
+Cuatro años después, la placa de P2 seguía en su cuello. La de P1 seguía en Guadalajara. Y el pacto seguía vigente, técnicamente. Solo que últimamente Jesús sentía que estaba jugando en modo de un solo jugador sin haberlo elegido, y eso —eso sí era un pensamiento para otro día. Hoy era día de suerte, de comida y de trabajo. Hoy tocaba Tokio.
 
 La cuadra de la suerte, resultó, estaba a quince minutos a pie y se llamaba calle comercial de Kinshicho, y Jesús supo que era la correcta porque olía a taiyaki, a lluvia vieja y a café.
 
@@ -116,7 +122,33 @@ Y así, entre la rubia que gritaba de alegría, la morena que negaba un espasmo 
 —Entonces... ¿estoy contratado? —preguntó.
 —¡Desde que atajaste! —dijo Chisato—. ¡Jesus-Chan! ¡Así te voy a decir! ¡Suena a anime de los domingos!
 —Suena a... ¿qué? —Jesús parpadeó—. Me llamo Jesús, a secas está bien, oye—
-—¡JESUS-CHAN! —cantó Chisato, girando con la charola—. ¡Mika, Jesus-Chan empieza mañana! ¡Takina, enséñale todo! ¡Mizuki, baja, tenemos compañero nuevo!
+—¡JESUS-CHAN! —cantó Chisato, girando con la charola—. ¡Pero espera! ¡Antes de contratarte oficialmente hay que hacerte LA PRUEBA!
+—¿La prueba? —Jesús miró a Mika—. ¿Hay prueba? ¿No que lo demás se enseña?
+—La prueba es sagrada —dijo Mika, solemne—. Yo también la hice. Reprobé dos veces.
+—¡Tres! —corrigió Chisato—. ¡Fueron tres! ¡Y es el dueño! ¡Takina, trae los tres vasitos!
+
+Takina suspiró el suspiro de quien ha visto esta escena demasiadas veces, pero fue por tres vasitos pequeños y los alineó en la barra con precisión militar. Chisato los llenó de la cafetera con ceremonia de ritual antiguo, los puso frente a Jesús, y se cruzó de brazos.
+
+—Prueba número uno de LycoReco —anunció—. Hay tres cafés. Uno está perfecto. Uno está... pasable. Y uno es un CRIMEN. Tienes que encontrar el crimen. Si lo encuentras, estás contratado. Si no...
+—¿Si no...? —Jesús tragó saliva.
+—¡Tendrás que tomar el curso de verano de Takina! —dijo Chisato, y Takina asintió gravemente, como si el curso de verano fuera una amenaza real y aterradora—. ¡Empieza!
+
+Jesús tomó el primer vasito. Olió. Probó. Asintió, profesional.
+—Este está... bien. Rico. Normal.
+—Sigue —dijo Chisato.
+Segundo vasito. Probó. Puso cara rara.
+—Este está... ¿aguado? ¿Triste? Sabe a lunes.
+—¡Sigue! ¡El tercero! ¡El tercero!
+
+Jesús tomó el tercer vasito. Lo olió. Lo probó. Y entonces su cara hizo una cosa que Chisato describiría después, riéndose, como "el espasmo de la traición". Porque el tercer café no tenía leche. Nada de leche. Era negro, amargo, despiadado.
+
+—¿QUÉ ES ESTO? —rugió Jesús, en español, señalando el vaso como si fuera evidencia en un juicio—. ¿Quién le hizo daño a este café? ¿QUIÉN? ¡Esto es un crimen! ¡ESTE es el crimen! ¡Café sin leche! ¡Lo dije desde que llegué! ¡Mis pulmones son mi mayor enemigo, después del café sin leche!
+
+Silencio total en el café.
+
+Y entonces Chisato gritó, Mika aplaudió riéndose, y hasta Takina —TAKINA— dejó escapar algo que sonó sospechosamente como una risa ahogada detrás de la mano.
+
+—¡CONTRATADO! ¡CONTRATADO OFICIAL! —Chisato le quitó el vaso criminal y le puso en la mano el perfecto—. ¡Jesus-Chan, eres uno de nosotros! ¡Mika, Jesus-Chan empieza mañana! ¡Takina, enséñale todo! ¡Mizuki, baja, tenemos compañero nuevo!
 
 —¡YA VOY! —se oyó desde arriba, seguido de un golpe, un "¡ay, mi rodilla!", y unos pasos bajando la escalera a toda prisa.
 
@@ -209,7 +241,13 @@ Tocó la placa de P2. *Nunca juegues solo*, decía el pacto. Pero el pacto no de
 
 Y entonces empezó a llover —apenas, una llovizna de esas que en Guadalajara anuncian tormenta y en Tokio no anuncian nada—, y Jesús Fujioka Hernández se puso la capucha de la chamarra, protegió el parfait como un running back, y corrió las últimas cuadras a su edificio riéndose solo, porque la lluvia de verdad también lo arrullaba un poco, aunque nunca se lo había dicho a nadie.
 
-En su cuarto de seis tatamis, con el Sky Tree asomando una rebanada por la ventana, cenó parfait de fresa sentado en el suelo, le mandó la foto a Abuela Rosa ("¡qué chiquito, mijo, ahí no cabe ni un pecado!" —"¡ABUELITA!" —"ya, ya, está bonito, se ve limpio, ¿ya rezaste?" —"ya, abuelita" —no había rezado— "bueno, reza doble mañana"), colgó el rosario, acomodó el balón en su rincón, y volteó la foto del acuario de Osaka —la puso de pie, mirándolo, ya no boca abajo—.
+En su cuarto de seis tatamis, con el Sky Tree asomando una rebanada por la ventana, cenó parfait de fresa sentado en el suelo. Y entonces, porque los días grandes piden rituales, abrió el binder de cartas sobre las rodillas.
+
+Su mazo. Sesenta cartas, tipos normales, fundas gastadas. Todo el mundo en la liga de Guadalajara se reía cuando lo veía —"¿normales? ¿en serio?"— y todo el mundo dejaba de reírse cuando perdía. Esa era su filosofía entera, cabía en un mazo: no hacían falta dragones legendarios ni poderes raros. Hacía falta conocer tus cartas, quererlas bien, y jugarlas en el momento exacto. Los ordinarios también ganaban. Eso se lo había enseñado su papá un domingo en Osaka, abriendo sobres sobre la mesa de la cocina, cuando le salió su carta favorita —la que seguía ahí, en la primera funda, un poco chueca de tanto mirarla— y su papá le había dicho: "Esta no se juega, mijo. Esta se cuida. Las cartas que te regalan suerte se cuidan."
+
+—Sigo cuidándola, pa —murmuró, pasando el dedo por la funda.
+
+Cerró el binder. Se quitó el reloj parado y lo dejó junto a la foto del acuario —las tres personas riéndose, el niño chimuelo con su sobre nuevo—, porque hasta los relojes parados merecían descansar de noche. Y le mandó la foto del cuarto a Abuela Rosa le mandó la foto a Abuela Rosa ("¡qué chiquito, mijo, ahí no cabe ni un pecado!" —"¡ABUELITA!" —"ya, ya, está bonito, se ve limpio, ¿ya rezaste?" —"ya, abuelita" —no había rezado— "bueno, reza doble mañana"), colgó el rosario, acomodó el balón en su rincón, y volteó la foto del acuario de Osaka —la puso de pie, mirándolo, ya no boca abajo—.
 
 —Ya llegué —les dijo a las tres personas que reían en la foto—. Tengo trabajo. Se llama LycoReco. Creo... creo que me va a gustar aquí.
 
