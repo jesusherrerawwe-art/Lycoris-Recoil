@@ -698,3 +698,25 @@ Broma-inocente → catástrofe: Jesús quiere poner fondo-vergonzoso en tablet-K
 Robota NO-sabe-archivo (¡separar-hilos!). PERO: detecta-Jesús-frágil-online (¿postea-menos? ¿repo-silencio?) → acelera-plan (¡villano-huele-sangre!). N23-doble-golpe: verdad-familia + verdad-Robota-misma-noche (¡noche-más-larga!). Regla: un-N-respira-entre-golpes (¡lector-también-respira!).
 
 *FIN §41 — Chuy-guionista 😈 (8-oct-2026). Pendiente: quién-guardaba + testigo? + huye? + colocación-A/B.*
+
+## 41. EL DESCUBRIMIENTO (giro-Chuy 8-oct-2026; ¡CANON-LOCKED! 💔)
+
+### 41.1 La escena (estructura Asaura: comedia → horror → cliffhanger)
+Kurumi deja tablet-desbloqueada. Jesús-quiere-broma (wallpaper-vergonzoso; ¡venganza-sana! ¡hermanos!). En vez de broma: ARCHIVOS. Por-su-cuenta (¡nadie-se-lo-dijo! ¡peor!): Lycoris + DA + Alan + Majima + TODO. Y-lo-peor: expediente-accidente-padres (hace-~7-años, carretera, apenas-recuerda) = ENCUBIERTO por "familia": Mika (¡lo-llamó-"hijo"-días-antes!) dirigió-limpieza; chicas NO-participaron-pero-NUNCA-dijeron (cobardía-amor). Shock → ASMA-colapso (suelo; ¡cliffhanger-capítulo!). Robota SONRÍE-desde-cámara (¿hackeó-tablet? ¿orquestó? ¡pendiente!).
+
+### 41.2 Por-qué-funciona (análisis-Ale)
+- Culpa-distribuida (nadie-inocente, nadie-monstruo): Mika-actuó (pecado), chicas-callaron (omisión), Jesús-descubrió-solo (peor-forma). Reparación-requiere-todos.
+- Mika-repite-pecado-sistema (DA-encubre; Mika-encubrió): tema "¿familia-o-sistema?" (doc-04-L: familia-vs-4-males; ¡Mika-usó-método-enemigo!).
+- Trauma-físico (asma-colapso): cuerpo-paga-verdad (paralelo-corazón-Chisato: ¡órganos-otras-vez!).
+- Robota-mirando: villano-no-ataca (OBSERVA; deja-que-verdad-haga-trabajo; ¡crueldad-elegante!).
+- Recuerdo-borroso (11-años): memoria-retorna-en-flashes (¡device-Ns-siguientes! ¿qué-más-olvida?).
+
+### 41.3 Preguntas-ABIERTAS (Chuy-decide/vota)
+- M1: ¿Accidente-real + limpieza-protocolo? ¿Colateral-operación-DA? ¿Alan-involucrado? (¡Ale-vota: colateral + protocolo; Alan-NO (reservar-misterio)!).
+- M2: ¿Mika-sabía-quién-era-Jesús-al-contratarlo? (¡PELIGROSO! ¡Ale-vota: NO-sabía; reconoció-apellido-después; calló-por-miedo-perderlo!).
+- M3: ¿Cuándo-cae? (¡Ale-vota: N20-21! ¡post-faint-pico! ¡pre-tormenta! ¡arco-reparación-N22-24!).
+- M4: ¿Robota-orquestó-tablet o aprovechó? (¡Ale-vota: aprovechó-pero-grabó-todo! ¡palanca-futura!).
+- M5: ¿Jesús-confronta o huye? (¡Ale-vota: HUYE-primero (hospital? abuela-llamada?) + confronta-después (N22! ¡escena-cumbre!).).
+- M6: ¿Mika "afro-japonés"? (Chuy-dijo; canon-Mika = africano. ¿Retcon-nuestra-novela (mezcla)? ¿o-lapsus? ¡preguntar!).
+
+*FIN §41 — giro guardado. Votación → estructura-final.*
