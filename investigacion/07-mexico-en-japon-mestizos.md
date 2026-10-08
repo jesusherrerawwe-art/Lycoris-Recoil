@@ -714,3 +714,12 @@ FUSIÓN: Robota hackeó-cámara-tablet (ve-COLAPSO-en-vivo, oye-llanto/jadeo, NO
 - V6 Testigo-redactado: NO-decidir (gancho-N23/bonus). Candidatos: ¿Jin? (¡sombra!) ¿Fuki-niña? (¿10-años?) ¿desconocida-LilyBell? (¿hombre?) ¡guardar!
 
 *FIN §41 FUSIONADO — Chuy-guionista 😈 + Ale-estructura 📓 (8-oct-2026). Votación → N21-N24.*
+
+### 41.9 RESULTADO-VOTACIÓN (Chuy 8-oct-2026; ¡LOCKED!)
+- V1 Guardaba: ¡AMBOS! (Mika-firmó-saneamiento + Kurumi-hackeó-y-enterró; ¡dolor-máximo! ¡reparación-doble!).
+- V2 Colocación: SIN-DECIDIR (¡guardar! ¡Ale-recomienda-A-al-escribir!).
+- V3 Contratación: NO-sabía (reconoció-apellido-después; calló-miedo-perderlo; ¡culpa-limpia!).
+- V4 Encuentra: ¡TODA-LA-FAMILIA-LycoReco! (¡no-una-ruta! ¡TODOS-banca-Kinshicho! ¡cada-ruta-su-beat-dentro-escena!).
+- V5/V6: afro-lapsus + testigo-guardado (asumidos; Chuy-veta-si-no).
+
+*FIN §41.9 — votación cerrada. N21-N24 aguardan.*
