@@ -240,7 +240,7 @@ Tocó la placa de P2. *Nunca juegues solo*, decía el pacto. Pero el pacto no de
 
 —Luego hablamos —murmuró—. Sale.
 
-Y entonces empezó a llover —apenas, una llovizna de esas que en Guadalajara anuncian tormenta y en Tokio no anuncian nada—, y Jesús Fujioka Hernández se puso la capucha de la chamarra, protegió el parfait como un running back, y corrió las últimas cuadras a su edificio riéndose solo, porque la lluvia de verdad también lo arrullaba un poco, aunque nunca se lo había dicho a nadie.
+Y entonces empezó a llover —apenas, una llovizna de esas que en Guadalajara anuncian tormenta y en Tokio no anuncian nada—, y Jesús Fujioka Hernández se puso la capucha de la chamarra, protegió el parfait contra el pecho, como jugador que protege el balón, y corrió las últimas cuadras a su edificio riéndose solo, porque la lluvia de verdad también lo arrullaba un poco, aunque nunca se lo había dicho a nadie.
 
 En su cuarto de seis tatamis, con el Sky Tree asomando una rebanada por la ventana, cenó parfait de fresa sentado en el suelo. Y entonces, porque los días grandes piden rituales, abrió el binder de cartas sobre las rodillas.
 
