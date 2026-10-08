@@ -549,15 +549,15 @@ Romaji + traducción-1ª-vez + glosario-cap + commit-pie + avance-próximo (¡do
 
 | Doc | Título | Bytes | Estado | Corazón |
 |---|---|---|---|---|
-| 01 | Historia-producción | 94,019 | ✓ | Origen |
-| 02 | Episodios-completos | 151,093 | ✓ | Trama |
-| 03 | Personajes-principales | 115,203 | ✓ | Quinteto |
+| 01 | Historia-producción | 94,068 | ✓ | Origen |
+| 02 | Episodios-completos | 151,974 | ✓ | Trama |
+| 03 | Personajes-principales | 115,739 | ✓ | Quinteto |
 | 04 | Personajes-secundarios | 78,964 | ✓ | Familia |
-| 05 | Diferencias-transmedia | 80,618 | ✓ | Canon |
-| 06 | Datos-curiosos | 74,403 | ✓ | Magia |
-| 07 | México-Jesús-mestizos | ~80,000 | ✓ | Hogar |
-| TOTAL | Investigación-Extended | ~675,000 | 7/7 ✓ | ¡TODO! |
-675kB = ¡675-páginas-aprox! ¡tesis! ¡carta! ¡casa! ¡Siguiente: N1! (¡novela! ¡cuando-Chuy!)
+| 05 | Diferencias-transmedia | 80,919 | ✓ | Canon |
+| 06 | Datos-curiosos | 74,821 | ✓ | Magia |
+| 07 | México-Jesús-mestizos | 64,736 | ✓ | Hogar |
+| TOTAL | Investigación-Extended | ~663,000 | 7/7 ✓ | ¡TODO! |
+663kB = ¡663-páginas-aprox! ¡tesis! ¡carta! ¡casa! ¡Siguiente: N1! (¡novela! ¡cuando-Chuy!)
 
 ## APÉNDICE K. Gracias + próximos (¡final!)
 

@@ -400,9 +400,9 @@ E1 masacra/castigada/llega rígida. E2 escolta eficiente + fricción métodos. E
 ## 6. Comparativa dúo + quinteto (tabla maestra + dinámica)
 | Eje | Chisato ❤️ | Takina 💙 | Mika ☕ | Mizuki 🍶 | Kurumi 🐿️ |
 |---|---|---|---|---|---|
-| Edad | 17 | 16 | 48* | 27* | ?* |
-| Cumple | 9/23 Libra | 8/2 Leo | ? | ? | 12/16* (registro?) |
-| Sangre | AB | A | ? | ? | ? |
+| Edad | 17 | 16 | 48 | 27 | ?* |
+| Cumple | 9/23 Libra | 8/2 Leo | 7/13 Cáncer | 6/5 Géminis | 12/16* (registro DA?) |
+| Sangre | AB | A | O | O | ?* |
 | Altura | 162 | 160 | ~180* | ~165* | ~135* |
 | Color | rojo | azul | marrón/negro | rojo gafas | negro listón |
 | Flor | nishikigi | hosta | ? (café: gardenia?) | ? (¿cosmos?) | nuez |
