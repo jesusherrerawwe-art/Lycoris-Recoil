@@ -699,24 +699,18 @@ Robota NO-sabe-archivo (¡separar-hilos!). PERO: detecta-Jesús-frágil-online (
 
 *FIN §41 — Chuy-guionista 😈 (8-oct-2026). Pendiente: quién-guardaba + testigo? + huye? + colocación-A/B.*
 
-## 41. EL DESCUBRIMIENTO (giro-Chuy 8-oct-2026; ¡CANON-LOCKED! 💔)
+### 41.6 Tema-Mika (aporte-Ale; ¡corazón-oscuro!)
+Mika-repite-pecado-sistema (DA-encubre; Mika-encubrió): "¿familia-o-sistema?" (doc-04-L). Mika-usó-método-enemigo para proteger-familia = contradicción-trágica. Lo-llamó-"hijo"-días-antes (¡Chuy-bomba!) = amor-real + culpa-real. Reparación: Mika-confiesa-TODO (¿N22? ¿rodillas? ¿sin-excusas?). Regla: Mika-NUNCA-miente-en-confesión (verdad-completa o nada).
 
-### 41.1 La escena (estructura Asaura: comedia → horror → cliffhanger)
-Kurumi deja tablet-desbloqueada. Jesús-quiere-broma (wallpaper-vergonzoso; ¡venganza-sana! ¡hermanos!). En vez de broma: ARCHIVOS. Por-su-cuenta (¡nadie-se-lo-dijo! ¡peor!): Lycoris + DA + Alan + Majima + TODO. Y-lo-peor: expediente-accidente-padres (hace-~7-años, carretera, apenas-recuerda) = ENCUBIERTO por "familia": Mika (¡lo-llamó-"hijo"-días-antes!) dirigió-limpieza; chicas NO-participaron-pero-NUNCA-dijeron (cobardía-amor). Shock → ASMA-colapso (suelo; ¡cliffhanger-capítulo!). Robota SONRÍE-desde-cámara (¿hackeó-tablet? ¿orquestó? ¡pendiente!).
+### 41.7 Robota-cámara (reconciliación: Chuy-dijo-"sonríe-desde-cámara" + §41.5-dice-"NO-sabe-archivo")
+FUSIÓN: Robota hackeó-cámara-tablet (ve-COLAPSO-en-vivo, oye-llanto/jadeo, NO-ve-archivo-contenido) → SONRÍE (no-sabe-qué-pasó, sabe-que-algo-SE-ROMPIÓ; ¡villano-huele-sangre-sin-ver-herida!). Después: detecta-fragilidad-online (repo-silencio) + acelera-plan (§41.5). N23-noche-más-larga: verdad-familia + verdad-Robota (¡él-también-lo-usaba!). NOTA: ¿grabó-colapso? (¡SÍ! ¡palanca-N23! ¡"mira-cómo-llora-tu-niño"! ¡crueldad!).
 
-### 41.2 Por-qué-funciona (análisis-Ale)
-- Culpa-distribuida (nadie-inocente, nadie-monstruo): Mika-actuó (pecado), chicas-callaron (omisión), Jesús-descubrió-solo (peor-forma). Reparación-requiere-todos.
-- Mika-repite-pecado-sistema (DA-encubre; Mika-encubrió): tema "¿familia-o-sistema?" (doc-04-L: familia-vs-4-males; ¡Mika-usó-método-enemigo!).
-- Trauma-físico (asma-colapso): cuerpo-paga-verdad (paralelo-corazón-Chisato: ¡órganos-otras-vez!).
-- Robota-mirando: villano-no-ataca (OBSERVA; deja-que-verdad-haga-trabajo; ¡crueldad-elegante!).
-- Recuerdo-borroso (11-años): memoria-retorna-en-flashes (¡device-Ns-siguientes! ¿qué-más-olvida?).
+### 41.8 VOTACIÓN-PENDIENTE (Chuy-decide; Ale-vota)
+- V1 Quién-guardaba-archivo: ¿Kurumi-lo-hackeó-y-enterró? (¡Ale-vota-ESTA! ¡menor-carga-pesado! ¡culpa-doble!) ¿Mika? ¿Ambos? (¡peor = mejor-drama?).
+- V2 Colocación: ¿A (N21-descubre/N22-finge/N23-explota/N24-queda)? (¡Ale-vota-A!) ¿B (todo-N23)?
+- V3 Huye: ¿SÍ-corre-asma-banca-Kinshicho-espejo-E1? (¡Ale-vota-SÍ!) ¿Quién-lo-encuentra? (¡DOBLE-RUTA-decide! ¡NO-revelar-hasta-escribir!).
+- V4 Mika-contratación: ¿sabía-quién-era-Jesús? (¡Ale-vota: NO; reconoció-apellido-después; calló-miedo!). ¡PELIGRO-manipulación-si-SÍ!
+- V5 Mika-"afro-japonés": Chuy-dijo; canon = africano. ¿Retcon-mezcla-nuestra? ¿lapsus? (¡Ale-vota: lapsus-cariño; Mika-africano-canon!).
+- V6 Testigo-redactado: NO-decidir (gancho-N23/bonus). Candidatos: ¿Jin? (¡sombra!) ¿Fuki-niña? (¿10-años?) ¿desconocida-LilyBell? (¿hombre?) ¡guardar!
 
-### 41.3 Preguntas-ABIERTAS (Chuy-decide/vota)
-- M1: ¿Accidente-real + limpieza-protocolo? ¿Colateral-operación-DA? ¿Alan-involucrado? (¡Ale-vota: colateral + protocolo; Alan-NO (reservar-misterio)!).
-- M2: ¿Mika-sabía-quién-era-Jesús-al-contratarlo? (¡PELIGROSO! ¡Ale-vota: NO-sabía; reconoció-apellido-después; calló-por-miedo-perderlo!).
-- M3: ¿Cuándo-cae? (¡Ale-vota: N20-21! ¡post-faint-pico! ¡pre-tormenta! ¡arco-reparación-N22-24!).
-- M4: ¿Robota-orquestó-tablet o aprovechó? (¡Ale-vota: aprovechó-pero-grabó-todo! ¡palanca-futura!).
-- M5: ¿Jesús-confronta o huye? (¡Ale-vota: HUYE-primero (hospital? abuela-llamada?) + confronta-después (N22! ¡escena-cumbre!).).
-- M6: ¿Mika "afro-japonés"? (Chuy-dijo; canon-Mika = africano. ¿Retcon-nuestra-novela (mezcla)? ¿o-lapsus? ¡preguntar!).
-
-*FIN §41 — giro guardado. Votación → estructura-final.*
+*FIN §41 FUSIONADO — Chuy-guionista 😈 + Ale-estructura 📓 (8-oct-2026). Votación → N21-N24.*
