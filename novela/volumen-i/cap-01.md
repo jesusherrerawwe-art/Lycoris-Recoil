@@ -249,7 +249,7 @@ Su mazo. Sesenta cartas, tipos normales, fundas gastadas. Todo el mundo en la li
 
 Cerró el binder. Se quitó el reloj parado y lo dejó junto a la foto del acuario —las tres personas riéndose, el niño chimuelo con su sobre nuevo—, porque hasta los relojes parados merecían descansar de noche. Y le mandó la foto del cuarto a Abuela Rosa le mandó la foto a Abuela Rosa ("¡qué chiquito, mijo, ahí no cabe ni un pecado!" —"¡ABUELITA!" —"ya, ya, está bonito, se ve limpio, ¿ya rezaste?" —"ya, abuelita" —no había rezado— "bueno, reza doble mañana"), colgó el rosario, acomodó el balón en su rincón, y volteó la foto del acuario de Osaka —la puso de pie, mirándolo, ya no boca abajo—.
 
-—Ya llegué —les dijo a las tres personas que reían en la foto—. Tengo trabajo. Se llama LycoReco. Creo... creo que me va a gustar aquí.
+—Ya llegué —les dijo a las tres personas que reían en la foto—. Tengo trabajo. Se llama LycoReco. Creo... creo que me va a gustar aquí. Cuídenme desde allá, ¿sí? Que Tokio está grande y yo todavía me pierdo hasta con mapa.
 
 Se puso los audífonos. Lluvia grabada + lluvia real en la ventana, estéreo natural. Y se durmió pensando en parfaits, en ojos rojos, en un espasmo de felicidad negado tres veces, en un hombre amable que había dicho *familia* antes que *equipo*, en unas tuberías viejas que pateaban muebles en el segundo piso, y en que mañana a las nueve empezaba su primer turno en el lugar más ruidoso y más feliz que había pisado en siete años.
 
