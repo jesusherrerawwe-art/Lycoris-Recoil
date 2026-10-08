@@ -283,7 +283,7 @@ Se acordó de las manos de su papá abriendo el sobre —manos grandes, de dedos
 
 Cerró el álbum. Se quitó el reloj parado y lo dejó junto a la foto —y entonces hizo algo que no había hecho en siete años: volteó la foto. La puso de pie, mirándolo. Las tres personas riéndose. El niño chimuelo con su sobre nuevo.
 
-—Ya llegué —les dijo—. Tengo trabajo. Se llama LycoReco. Creo... creo que me va a gustar aquí. Cuídenme desde allá, ¿sí? Que Tokio está grande y yo todavía me pierdo hasta con mapa.
+—Ya llegué —les dijo—. Tengo trabajo. Se llama LycoReco. Creo... creo que me va a gustar aquí. Cuídenme desde allá, ¿sí? Que Tokio está grande y yo todavía me pierdo hasta con mapa, y de noche, y de día, y siempre.
 
 Le mandó la foto del cuarto a Abuela Rosa ("¡qué chiquito, mijo, ahí no cabe ni un pecado!" —"¡ABUELITA!" —"ya, ya, está bonito, se ve limpio, ¿ya rezaste?" —"ya, abuelita" —no había rezado— "bueno, reza doble mañana"), colgó el rosario, acomodó el balón en su rincón, y se acostó.
 
