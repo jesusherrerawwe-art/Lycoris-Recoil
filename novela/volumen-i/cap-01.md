@@ -1,4 +1,5 @@
 # Volumen I — Capítulo 1: «Home at Last»
+
 *El muchacho que volvió con el sol en la maleta*
 
 El avión tocó tierra en Narita a las cuatro y media de la tarde, con ese golpe sordo que siempre le había parecido el sonido oficial de "ya estuvo, no hay vuelta atrás", y Jesús Fujioka Hernández —dieciocho años recién cumplidos, playera de las Chivas debajo de una chamarra negra que en Guadalajara era su orgullo y en el calor húmedo de Tokio iba a convertirse en su primer enemigo— se quedó pegado a la ventanilla viendo pasar las pistas, las torres, los letreros en kanji que su cerebro leía solos, sin pedirle permiso, como si los once años que había vivido en Osaka hubieran estado guardados en un cajón y alguien acabara de abrirlo de golpe.
@@ -8,17 +9,29 @@ El avión tocó tierra en Narita a las cuatro y media de la tarde, con ese golpe
 Sacó el teléfono antes de que el avión terminara de rodar. Una llamada perdida de "Abuelita Rosa 👑". Sonrió. La marcó de vuelta apoyando la frente en la ventanilla.
 
 —¿Mijo? ¿Ya llegaste? ¿Cómo está el cielo allá? ¿Comiste algo?
+
 —Abuelita, acabo de aterrizar. El cielo está... —miró hacia afuera— igual que en GDL cuando va a llover pero no llueve.
+
 —Ay, mijo, no me hables de lluvia. Reza un padrenuestro y come algo. ¿Traes el inhalador?
+
 —Bolsa derecha, como siempre.
+
 —¿Y el reloj de tu papá?
+
 Jesús se miró la muñeca izquierda. El reloj viejo, parado desde hacía siete años en una hora que ya nadie mencionaba en voz alta.
+
 —Puesto, abuelita.
+
 —Bien. Pórtate bien, habla bonito, y si una muchacha te invita un café, tú aceptas, que para eso te hice guapo.
+
 —¡Abuelita!
+
 —Ya, ya. Mándame foto de tu cuarto cuando llegues. Y mijo... —la voz se le puso seria, esa seriedad de terciopelo que tenía— ...tu mamá y tu papá estarían felices. Volviste a casa. Las dos casas son tuyas, ¿me oíste?
+
 —Te oí. —Se le cerró la garganta—. Te marco al rato. Te quiero.
+
 —Y yo a ti, mi cielo. Cuídate los pulmones, que son tu mayor enemigo.
+
 —Después del café sin leche —dijo él, y los dos se rieron, porque ese era su chiste, el de ellos, y colgaron.
 
 Guardó el teléfono. Respiró hondo —el aire del avión, reciclado y frío— y se prometió, con la solemnidad de los dieciocho años, que Tokio iba a ser el lugar donde por fin respiraba tranquilo.
@@ -31,7 +44,10 @@ Jesús iba pegado a la ventana del Access Express viendo pasar Chiba —casas ba
 
 Osaka-ben. El acento de su mamá. Siete años en Guadalajara no lo habían matado; solo lo habían dormido. Y Tokio, al parecer, venía con despertador incluido.
 
-—¿De Osaka? —le preguntó la señora de al lado, amable, al oírlo murmurar.
+—¿De Osaka?
+
+—le preguntó la señora de al lado, amable, al oírlo murmurar.
+
 —De Guadalajara —dijo él, en automático—. Digo... de Osaka antes. Ahora de Guadalajara. Ahora de Tokio. —Se rió—. Perdón. Todavía no sé de dónde soy esta semana.
 
 La señora se rió también y le regaló un caramelo de limón. Jesús lo guardó en la bolsa junto al inhalador —bolsa derecha, siempre— y pensó que Japón seguía siendo Japón: señoras que regalan caramelos, trenes puntuales al minuto, y esa sensación de que todo estaba en su lugar menos él.
@@ -67,6 +83,7 @@ El café lo detuvo en seco.
 Era un local chiquito, metido entre una tlapalería y una tienda de discos, con un letrero de madera que decía **LycoReco** en letras redondas y, debajo, una pizarra con el menú del día escrito con plumones de colores y dibujitos. En la ventana había una calcomanía de un pinguino con lentes de aviador. Y pegado en la puerta, chueco, con cinta adhesiva, un papel que decía:
 
 > **SE SOLICITA AYUDA — medio tiempo, sin experiencia, con ganas.**
+
 > *Pregunta por Mika. Trae tu mejor sonrisa. (La sonrisa es obligatoria. Lo demás se enseña.)*
 
 Jesús leyó el papel dos veces. Miró su reflejo en el vidrio: pelo negro esponjado, ojos marrones, la cicatriz chiquita de la ceja —recuerdo de Osaka, de los nueve años, de haberse metido donde no lo llamaban para defender a un niño más chico, historia que contaba riéndose y que en realidad le dolía contar—, y los Converse rojos de bota que Abuela Rosa había intentado tirar a la basura tres veces.
@@ -84,13 +101,17 @@ Silencio. La campanita terminó de sonar.
 La muchacha rubia —ojos rojos, listón rojo, sonrisa de comercial de dentífrico— lo miró de arriba abajo. Luego miró la charola. Luego otra vez a él.
 
 —¡Atajaste al cliente! —anunció, feliz—. ¡Eres portero! ¡Contratado!
+
 —¿Eh? —dijo Jesús, que todavía tenía los brazos abiertos—. Yo solo venía a... hay un papel afuera, yo...
+
 —¡Mika! ¡Mika, ven a ver a mi nuevo mejor amigo! ¡Se llama...! —se inclinó hacia él, las manos en las rodillas, los ojos rojos brillando—. ¿Cómo te llamas, nuevo-mejor-amigo?
+
 —Jesús. Jesús Fu—
 
 No alcanzó a terminar. Porque en ese momento salió de la cocina un hombre alto, de traza africana elegante, delantal inmaculado, sonrisa tranquila —y al oír el nombre, al verle la cara, algo cruzó por sus ojos. Algo rapidísimo, como una nube frente al sol. Duró menos de un segundo. Después sonrió más amplio y se limpió las manos en el delantal.
 
 —Bienvenido a LycoReco —dijo Mika—. Yo soy Mika. ¿Buscas trabajo, Jesús...?
+
 —Fujioka Hernández —completó Jesús, haciendo una reverencia automática, perfecta, de esas que el cuerpo recordaba aunque llevara siete años sin usarlas—. Jesús Fujioka Hernández. Dieciocho años, estudiante de informática, recién llegado. Hablo español, japonés e inglés. Sé hacer café... —dudó— ...más o menos. Pero aprendo rápido y no me rajo.
 
 Mika lo miró un momento largo. No era una mirada de entrevista. Era otra cosa —como si estuviera viendo a alguien más, parado exactamente donde Jesús estaba parado, y a la vez disculpándose con él por algo.
@@ -98,8 +119,11 @@ Mika lo miró un momento largo. No era una mirada de entrevista. Era otra cosa �
 Después parpadeó, y fue solo el dueño amable de un café otra vez.
 
 —El japonés lo hablas muy bien para ser recién llegado —dijo.
+
 —Viví aquí de niño. En Osaka. Hasta los once.
+
 —¿Osaka? —Mika ladeó la cabeza—. ¿Y tu familia...?
+
 —Es una historia larga —dijo Jesús, con la sonrisa fácil que había practicado siete años—. La versión corta: vivo con mi abuela en Guadalajara. Estudio aquí. Necesito trabajo. Y ese papel de la puerta prácticamente me habló por mi nombre.
 
 —Los papeles de Chisato hacen eso —dijo una voz seca desde el fondo del local.
@@ -107,7 +131,9 @@ Después parpadeó, y fue solo el dueño amable de un café otra vez.
 Una muchacha de pelo negro, largo y lacio, uniforme azul marino del café, estaba puliendo vasos detrás de la barra con la concentración de un cirujano. Levantó la vista medio segundo, lo escaneó completo —Converse rojos incluidos, Jesús lo sintió— y volvió a los vasos.
 
 —Takina —dijo Mika—. Sé amable. Es su primer día. Bueno —miró a Jesús, divertido—, sus primeros cuarenta segundos.
+
 —Fujioka-san —dijo Takina, con una inclinación mínima, precisa—. Bienvenido. La sonrisa es obligatoria. Lo demás se enseña. Pero el café sin leche está prohibido servirlo mal.
+
 —¡Oye! —protestó Jesús, ofendido en lo más hondo—. El café sin leche es un crimen contra la humanidad. Yo siempre pregunto primero: ¿con leche, verdad? ¿VERDAD?
 
 Takina lo miró. Un segundo. Dos. Y entonces —apenas, casi nada, como si se le hubiera escapado— las comisuras de su boca se movieron un milímetro hacia arriba.
@@ -115,30 +141,45 @@ Takina lo miró. Un segundo. Dos. Y entonces —apenas, casi nada, como si se le
 Chisato lo vio. Chisato lo vio TODO, porque Chisato veía todo, y señaló a Takina con el dedo temblando de emoción:
 
 —¡TE REÍSTE! ¡Sonreíste! ¡Takina sonrió! ¡Mika, apúntalo, hoy es fiesta nacional!
+
 —No sonreí —dijo Takina, fría, puliendo el vaso con renovada furia—. Fue un espasmo.
+
 —¡Fue un espasmo de FELICIDAD!
 
 Y así, entre la rubia que gritaba de alegría, la morena que negaba un espasmo y el dueño que reía en silencio detrás de la barra, Jesús Fujioka Hernández sintió algo que no sentía desde los once años: que había entrado a un lugar por accidente y que el lugar llevaba años esperándolo.
 
 —Entonces... ¿estoy contratado? —preguntó.
+
 —¡Desde que atajaste! —dijo Chisato—. ¡Jesus-Chan! ¡Así te voy a decir! ¡Suena a anime de los domingos!
+
 —Suena a... ¿qué? —Jesús parpadeó—. Me llamo Jesús, a secas está bien, oye—
+
 —¡JESUS-CHAN! —cantó Chisato, girando con la charola—. ¡Pero espera! ¡Antes de contratarte oficialmente hay que hacerte LA PRUEBA!
+
 —¿La prueba? —Jesús miró a Mika—. ¿Hay prueba? ¿No que lo demás se enseña?
+
 —La prueba es sagrada —dijo Mika, solemne—. Yo también la hice. Reprobé dos veces.
+
 —¡Tres! —corrigió Chisato—. ¡Fueron tres! ¡Y es el dueño! ¡Takina, trae los tres vasitos!
 
 Takina suspiró el suspiro de quien ha visto esta escena demasiadas veces, pero fue por tres vasitos pequeños y los alineó en la barra con precisión militar. Chisato los llenó de la cafetera con ceremonia de ritual antiguo, los puso frente a Jesús, y se cruzó de brazos.
 
 —Prueba número uno de LycoReco —anunció—. Hay tres cafés. Uno está perfecto. Uno está... pasable. Y uno es un CRIMEN. Tienes que encontrar el crimen. Si lo encuentras, estás contratado. Si no...
+
 —¿Si no...? —Jesús tragó saliva.
+
 —¡Tendrás que tomar el curso de verano de Takina! —dijo Chisato, y Takina asintió gravemente, como si el curso de verano fuera una amenaza real y aterradora—. ¡Empieza!
 
 Jesús tomó el primer vasito. Olió. Probó. Asintió, profesional.
+
 —Este está... bien. Rico. Normal.
+
 —Sigue —dijo Chisato.
+
 Segundo vasito. Probó. Puso cara rara.
+
 —Este está... ¿aguado? ¿Triste? Sabe a lunes.
+
 —¡Sigue! ¡El tercero! ¡El tercero!
 
 Jesús tomó el tercer vasito. Lo olió. Lo probó. Y entonces su cara hizo una cosa que Chisato describiría después, riéndose, como "el espasmo de la traición". Porque el tercer café no tenía leche. Nada de leche. Era negro, amargo, despiadado.
@@ -156,19 +197,29 @@ Y entonces Chisato gritó, Mika aplaudió riéndose, y hasta Takina —TAKINA—
 Mizuki Nakahara apareció en el local como un huracán con resaca: pelo castaño recogido a medias, uniforme del café, una taza de café en la mano y cara de quien se despertó hace cuatro minutos.
 
 —¿Este es? —Lo midió. Miró la playera de las Chivas. Se detuvo. Volvió a mirar—. A ver, mijo. Esa playera. ¿Sabes lo que traes puesto o es moda?
+
 —Club Deportivo Guadalajara —recitó Jesús, enderezándose—. El Rebaño Sagrado. Puros mexicanos. Catorce ligas. Mi papá me hizo de las Chivas antes de que yo supiera hablar.
+
 —BIEN —dijo Mizuki, señalándolo con la taza—. Me caes bien. ¿Hablas español de verdad o de Duolingo?
+
 —De Guadalajara, de verdad, con groserías incluidas si me sacas de quicio.
+
 —¡JA! —Mizuki le dio una palmada en la espalda que casi lo manda contra la barra—. Mika, me gusta. Quédatelo. Oye, mijo, ¿me enseñas español? Quiero ligar en dos idiomas.
+
 —Mizuki —dijo Takina sin levantar la vista—. Concéntrate en ligar en uno primero.
+
 —¡TAKINA! ¡De mi lado, traidora! ¡Jesus-Chan, defiéndeme!
+
 —Yo acabo de llegar —dijo Jesús, levantando las manos—. Soy Suiza. Suiza con asma.
+
 —¿Asma? —Mika se acercó, de pronto serio—. ¿Traes tu medicamento?
+
 —Inhalador, bolsa derecha, siempre —dijo Jesús, dándole golpecitos al bolsillo por costumbre—. Desde niño. No se preocupe, lo tengo controlado. Bueno —sonrió—, *casi* siempre.
 
 Mika asintió despacio. Y otra vez esa nube, rapidísima, cruzándole la cara. Pero esta vez Jesús sí la vio. Y no supo qué era, pero le dejó una cosita fría en el estómago, como cuando el metro frena de golpe.
 
 —¿Mika? ¿Está bien?
+
 —Sí —dijo Mika, y sonrió, y la nube se fue—. Solo pensaba... que hace mucho no contratábamos a alguien. Bienvenido a la familia, Jesús. Digo —se corrigió, riendo bajito—. Al equipo. Bienvenido al equipo.
 
 *Familia*, pensó Jesús. *Dijo familia primero.*
@@ -180,12 +231,17 @@ No le dio importancia. Todavía no.
 Lo mandaron a su casa con un parfait de cortesía ("¡para que sueñes con nosotros!" —Chisato), la promesa de empezar al día siguiente a las nueve, y una lista de reglas del café escrita a mano por Takina en una tarjeta impecable:
 
 1. Sonreír (obligatorio).
+
 2. El café con leche se pregunta, no se asume.
+
 3. No tocar la tableta de Kurumi. NUNCA. (Subrayado tres veces.)
+
 4. Si Chisato dice "tengo una idea", avisar a Mika.
+
 5. Bienvenido. (Esto último, con letra más chica, como si le hubiera costado escribirlo.)
 
 —¿Quién es Kurumi? —preguntó Jesús, señalando la regla tres.
+
 —Ya la conocerás —dijeron los cuatro al mismo tiempo, y se miraron entre ellos con una cara rarísima, como si compartieran un chiste que él todavía no entendía.
 
 Salió del LycoReco flotando. Eran las nueve de la noche, Kinshicho brillaba, el parfait sabía a fresa y a futuro, y Jesús Fujioka Hernández —P2, portero, Jesus-Chan— caminó de vuelta a su cuarto de seis tatamis sintiendo que Tokio acababa de darle la bienvenida con una patinada imposible y tres parfaits intactos.
@@ -203,24 +259,39 @@ Pero antes de irse, pasaron tres cosas que Jesús anotaría años después, en u
 La primera: un golpe seco arriba, en el segundo piso del café, como si alguien hubiera pateado un mueble. Todos miraron al techo. Todos. Al mismo tiempo. Como ensayado.
 
 —¿Hay alguien arriba? —preguntó Jesús.
+
 —¡Las tuberías! —dijo Chisato rapidísimo—. ¡Tuberías viejas! ¡Muy ruidosas! ¡Mika, hay que llamar al plomero!
+
 —¡Al plomero! —repitió Mizuki, asintiendo con la seriedad de una actriz de telenovela—. ¡Urgente!
+
 —Fujioka-san —dijo Takina, entregándole la tarjeta de reglas con ambas manos, formal—. Mañana a las nueve. Puntual. La impuntualidad se descuenta del sueldo y del cariño.
+
 —¿Del cariño también?
+
 —Sobre todo del cariño —dijo Takina, y se dio la vuelta a seguir puliendo vasos, pero Jesús habría jurado —*jurado*— que había otro espasmo ahí, chiquito, escondido.
 
 La segunda cosa: Mika lo acompañó a la puerta, y en la puerta, con la campanita sonando bajito, le puso una mano en el hombro. Pesaba. No de peso —de algo más.
 
 —Jesús —dijo—. ¿Puedo preguntarte algo? ¿Tus papás...? Osaka, once años... ¿qué pasó, si se puede saber?
+
 La sonrisa fácil se le puso en automático. La de siete años de práctica.
+
 —Accidente de carretera. Yo iba con ellos. No me acuerdo de casi nada —dijo, ligerito, como quien cuenta que reprobó un examen—. Abuela Rosa me llevó a Guadalajara y me hizo tapatío a la fuerza. Pozole, Chivas y chanclazos. Funcionó.
+
 —Ya veo —dijo Mika. Y la nube volvió a pasarle por la cara, y esta vez se quedó un segundo entero. Un segundo larguísimo—. Lo siento mucho, Jesús.
+
 —No se preocupe. Fue hace mucho. —Jesús se tocó el reloj parado por costumbre—. Además, mire: tengo dos casas, dos idiomas, dos equipos... bueno, un equipo. Las Chivas. Eso no se negocia.
+
 Mika se rió —una risa de verdad, sorprendida, como si no esperara reírse.
+
 —Los Urawa Red Diamonds te estarían esperando con los brazos abiertos.
+
 —¡JAMÁS! —dijo Jesús, llevándose una mano al pecho—. ¡Mika, acabo de llegar y ya me quiere convertir! ¡Mi papá me está viendo desde el cielo y está decepcionado de usted!
+
 —¡Tu papá y yo nos llevaríamos bien, estoy seguro!
+
 —¡Mi papá le diría que el Akemi es mejor!
+
 —¡JA! —Mika le revolvió el pelo, y fue un gesto tan paternal, tan natural, que a los dos los agarró por sorpresa. Se miraron. Mika retiró la mano despacio—. Mañana a las nueve, Jesús. Bienvenido... a LycoReco.
 
 *Iba a decir otra cosa*, pensó Jesús en la puerta. *Iba a decir "a la familia" otra vez.*
@@ -228,10 +299,15 @@ Mika se rió —una risa de verdad, sorprendida, como si no esperara reírse.
 La tercera cosa pasó cuando ya iba a media cuadra, parfait en mano, felicidad en modo máximo: su teléfono vibró. Mensaje de Player-1. Su primo. El primero en cuatro días.
 
 > **P1:** llegaste?
+
 > **Jesús:** LLEGUÉ. Tengo cuarto, tengo café favorito y tengo TRABAJO. El café se llama LycoReco. La mesera patina sin patines. Creo que me adoptaron.
+
 > **P1:** jaja suena bien. cuídate we
+
 > **Jesús:** Eso es todo?? "Cuídate we"?? Tengo dieciocho años de material y me das un "cuídate we"??
+
 > **P1:** ando busy. luego hablamos. salúdame a tokio
+
 > **Jesús:** ...sale. Player-2 fuera. 🎮
 
 Guardó el teléfono con una cosita agria en el pecho. *Ando busy. Luego hablamos.* Antes hablaban todos los días —partidas, cartas, planes de dominar el arcade de Plaza del Sol—. Desde que Jesús había dicho "me voy a Tokio", los mensajes se habían ido espaciando, enfriando, como una consola que alguien apaga poco a poco. No estaban peleados. Era peor: se estaban... desdibujando. Como si su primo ya lo hubiera mudado a la carpeta de "gente que se fue".
@@ -248,7 +324,7 @@ Su mazo. Sesenta cartas, tipos normales, fundas gastadas. Todo el mundo en la li
 
 —Sigo cuidándola, pa —murmuró, pasando el dedo por la funda.
 
-Cerró el binder. Se quitó el reloj parado y lo dejó junto a la foto del acuario —las tres personas riéndose, el niño chimuelo con su sobre nuevo—, porque hasta los relojes parados merecían descansar de noche. Y le mandó la foto del cuarto a Abuela Rosa le mandó la foto a Abuela Rosa ("¡qué chiquito, mijo, ahí no cabe ni un pecado!" —"¡ABUELITA!" —"ya, ya, está bonito, se ve limpio, ¿ya rezaste?" —"ya, abuelita" —no había rezado— "bueno, reza doble mañana"), colgó el rosario, acomodó el balón en su rincón, y volteó la foto del acuario de Osaka —la puso de pie, mirándolo, ya no boca abajo—.
+Cerró el binder. Se quitó el reloj parado y lo dejó junto a la foto del acuario —las tres personas riéndose, el niño chimuelo con su sobre nuevo—, porque hasta los relojes parados merecían descansar de noche. Y le mandó la foto del cuarto a Abuela Rosa ("¡qué chiquito, mijo, ahí no cabe ni un pecado!" —"¡ABUELITA!" —"ya, ya, está bonito, se ve limpio, ¿ya rezaste?" —"ya, abuelita" —no había rezado— "bueno, reza doble mañana"), colgó el rosario, acomodó el balón en su rincón, y volteó la foto del acuario de Osaka —la puso de pie, mirándolo, ya no boca abajo—.
 
 —Ya llegué —les dijo a las tres personas que reían en la foto—. Tengo trabajo. Se llama LycoReco. Creo... creo que me va a gustar aquí. Cuídenme desde allá, ¿sí? Que Tokio está grande y yo todavía me pierdo hasta con mapa.
 
@@ -263,4 +339,6 @@ Todavía no.
 *(Continuará...)*
 
 ---
+
 *Volumen I · Capítulo 1 de 13 · 8-oct-2026 · 🤐*
+

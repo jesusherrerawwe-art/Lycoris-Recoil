@@ -13,3 +13,4 @@ V1: 1 "Home at Last" (El muchacho que volvió...) · 2 "Bet On It" · 3 "Sink or
 V2: 14 "Aftermath" · 15 "Fever Dream" · 16 "Make a Wish" · 17 "Need to Know" · 18 "Third Wheel" · 19 "Small Seeds" · 20 "What If" · 21 "Blue Skies" · 22 "Rule Number Three" · 23 "Waiting Room" · 24 "Search Party" · 25 "Stay" · 26 "Double Route" + 26-A "Red" ❤️ + 26-B "Blue" 💙.
 (REGLA: títulos crípticos; jamás revelar lista completa a Chuy antes de tiempo.)
 **HITO-Chuy (8-oct): al terminar cap-6, REVISIÓN COMPLETA de caps 1-6 (errores canon, continuidad, español limpio). Promesa inolvidable: incidente-Chisato-pelirroja jamás se repite.**
+**REGLA-FORMATO (8-oct, queja-Chuy): diálogos con LÍNEA VACÍA entre turnos (markdown pega renglones). Caps 1-3 reformateados. Desde cap-4, escribir pre-espaciado. Revisar formato en hito-cap6.**
