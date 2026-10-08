@@ -723,3 +723,25 @@ FUSIÓN: Robota hackeó-cámara-tablet (ve-COLAPSO-en-vivo, oye-llanto/jadeo, NO
 - V5/V6: afro-lapsus + testigo-guardado (asumidos; Chuy-veta-si-no).
 
 *FIN §41.9 — votación cerrada. N21-N24 aguardan.*
+
+## 42. PULIDO-CHUY (8-oct-2026; 5 puntos; ¡ojo-guionista!)
+
+### 42.1 Mika = AFRICANO (NO afro-japonés; VERIFICADO)
+Febri-Imigimuru: "アフリカ系であることは最初から決まっていた" (¡decidido-desde-inicio!) + ref-futbolistas-extranjeros + gap-wafuku. JP-wiki: アフリカ系. Nacionalidad-ni-país: SIN-especificar-canon (= libertad-nuestra). REGLA: africano-residente-largo + ex-instructor-DA + "hijo"-a-Jesús. ¿País? PROPUESTA: vago (¿"África-occidental"? ¡UNA-línea-máximo! ¡no-sobrecargar!). ¿Idioma-extra? (¿francés? ¡NO-decidir! ¡gag-futuro?).
+
+### 42.2 SIN-ANTAGONISTA (Robota-FUERA; ¡decisión-Chuy! ¡correcta!)
+Antagonista = EL-SECRETO (+ sistema-DA + miedo + culpa). Por-qué-mejor: sin-villano = sin-a-quién-golpear = deben-mirarse (¡drama-humano-Asaura!). Tensión-sin-malo: reloj-médico (asma) + reloj-mentira (¿cuándo-estalla?) + reloj-DA (¿sistema-nota-al-civil?). Robota-canon-sigue-libre; NUESTRA: ¿cameo-post-créditos-N24? (¿guiño-1-línea?) o ¿CERO? (¡Chuy-elige!). SUPERSEDE: §40.7 + §41.5 + §41.7 (leer-como-borrador-descartado). Repo-riesgo (§40.6): queda-como-tensión (¡el-SISTEMA-puede-notar! ¡no-hace-falta-villano!).
+
+### 42.3 HOSPITAL-PELEA (escena-Chuy; sala-urgencias-madrugada; ¡obra-teatro!)
+Jesús-dentro (crisis-grave; "estable-pero" ¡NO-muerte-falsa-barata!). Beats: 1) Silencio-máquinas + café-frío. 2) Mizuki-EXPLOTA-primera (¡a-Mika! "¡TÚ-lo-trajiste! ¡TÚ-firmaste!"). 3) Takina-vs-Chisato (protocolo vs "¡AL-DIABLO-TU-PROTOCOLO!" ¡Takina-rompe-DA-verbal!). 4) Kurumi-voz-chiquita-confiesa (enterró-archivo; ¡SILENCIO-peor-momento!). 5) Mika-carga-TODO (¡para-pelea! ¡"fue-mi-culpa-toda"!). 6) Se-NIEGAN (¡no-lo-dejan! ¡familia-se-reteje-en-ruinas!). 7) Doctor-interrumpe (noticias; respiración-colectiva). 8) Coda-promesas (cada-una-con-él; ¡votos-N24-adelantados!). REGLA: amor-mal-dirigido; UNA-línea-casi-imperdonable = Mizuki ("¡esto-pasa-cuando-juegas-a-la-familia-Mika!" ¡su-arco-reparación! §42.4).
+
+### 42.4 MIZUKI-RESCATE (¡paquete-completo! ¡no-más-lado!)
+- Hospital: explota + LA-línea + llora-primera + pide-perdón-última (¡arco: boda-que-no-fue → familia-que-SÍ-es! ¡N-Mizuki!).
+- Debate-N (¿decirle?): voz-ex-DA ("yo-también-encubrí-cosas" ¡vago! ¡sombra-propia! ¡N-revela-poco!).
+- Madrina-caos: clases-español-ligar (gag) + ¿enseña-manejar? (¡driver!) + traje-compras? + jugo-vs-cerveza (¡LEY-20-años! ¡Jesús-jugo! ¡ella-se-queja! ¡gag-legal!).
+- N-momento: ¿propuesta? (¡N-cita-desastre + Jesús-la-rescata-como-"hermano-menor"! ¡roles-invertidos! ¡tierno!).
+
+### 42.5 RETCON-ORIGEN (¡agujero-tapado! ¡Chuy-bien-visto!)
+Problema: accidente-Japón (DA-encubre) ⟹ Jesús-NO-viajó-GDL→Tokio. SOLUCIÓN: ¡SÍ-viajó (de-REGRESO)! Osaka-0-11 (nace-crece-Japón; JP-nativo; Osaka-ben-materno) → accidente-carretera-Japón (11-años; padres-mueren) → abuela-lo-lleva-Guadalajara (11-18; forma-tapatío; Chivas-español-fe) → REGRESA-Tokio-18 (uni; ¡N1-llegada!). TODO-preservado + MEJORADO: kikokushijo-帰国子女 (¡niño-retornado! ¡otredad-real-documentada! ¡"hablas-raro"!); Osaka-ben-RESURGE-con-memoria (¡emoción! ¡N-device!); flashes-Japón-infancia (¿qué-más-olvida?); volver-al-lugar-donde-murieron-sin-saberlo (¡tragedia-griega!). Pregunta-SENSIBLE (¡Chuy-veta!): ¿IBA-EN-EL-COCHE? (PROPUESTA-SÍ: sobreviviente + culpa + "apenas-recuerda" + ¿asma-desde-entonces? ¡oscuro-potente!). Alternativas: estaba-casa/escuela (le-avisaron) o viaje-solo-padres (¡culpa-de-no-estar!). ¡VETA-LIBRE!
+
+*FIN §42 — pulido guardado. Pendiente: Robota-cero/cameo? + iba-en-coche? + abuela-nombre?*
