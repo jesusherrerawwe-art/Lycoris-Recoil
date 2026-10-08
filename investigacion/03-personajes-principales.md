@@ -774,3 +774,47 @@ Takina miró su obra arruinada. Miró a sus hermanas tosiendo leche y risa. Y…
 **Kurumi:** gremlin/closet/tecleo/flan/ardilla/nuez/enka/pantallas/peluches/maleta/mejilla/noche/servidor/glitch/bebé-terrible/sabia/manta-cables. Rotar.
 **Jesús (prop):** laptop/Suica/hoodie-Tricolor/jet-lag/tacos/app/commit/paleta-payaso?/cumbia-uno-oido/manual-roto/mochila/foto/portátil/llamada-mamá. Rotar + NUEVO por cap (crece: N1 mochila → N24 delantal-familia).
 *FIN bancos — Ale. Total doc: verificar ~130 kB.*
+
+---
+
+## Apéndice AJ. Vestuario evolutivo (la ropa cuenta el arco — guía escena)
+- **Chisato:** E1 café+listón (identidad) → E3 First roja HQ (rango que no quiere) → E4 shopping ajeno (cuida) → E10 furisode (hija) → E10–E13 uniforme batalla (vuelve Lycoris PARA SALVAR) → roto+sangre (precio) → hospital (vulnerable) → Miyako isla (renacida) → Hawái pareo (libre). Arco tela: uniforme→kimono→furisode→uniforme→pareo (círculo: Lycoris→familia→hija→Lycoris→MUJER libre). Novela: N24 pareo+listón (fusión).
+- **Takina:** E1 HQ azul (sistema) → E1–E9 café azul+twins (hogar nuevo) → E4 interior nuevo (autoestima) → E6 pijama (confianza) → E10 DA azul (vuelve… por amor, no sistema) → E13 batalla roto (precio) → shorts café (hogar) + Hawái (viaje). Arco: azul→azul (mismo color, distinto corazón). Novela: N24 twins+uniforme (fusión: eficiente + amada).
+- **Mika:** traje+delantal (dual) → bar traje (pasado) → formal furisode (padre) → táctico+bastón (guerrero) → Hawái (jubilado culposo). Arco: delantal→arma→delantal (círculo). Novela: N24 delantal "papá" (bordado por quinteto).
+- **Mizuki:** kimono+gafas (marca) → botarga (valiente) → aeropuerto sombrero (huida) → retorno (familia) → Hawái (¿vestido?). Arco: gafas siempre (verdad). Novela: N24 vestido (por fin, cita… ¿Jin?).
+- **Kurumi:** kigurumi (escondite) → hoodie (hogar) → aeropuerto mochila (huida) → closet (nido) → Hawái+servidor (raíces portátiles). Arco: botarga→hoodie (máscara→piel). Novela: N24 hoodie nueva (regalo Jesús: "WALNUT-2").
+- **Regla:** cambio de ropa = cambio de alma (describir 3+ líneas cuando cambien en novela).
+
+## Apéndice AK. Objetos personales (bolsillos/cuartos — intimidad para escenas)
+- **Chisato (bolsillos):** pañuelos ×3, charm búho, dulce, foto quinteto (nueva), bala goma suerte. (Cuarto): películas, peluches, uniforme First colgado (reliquia), ticket E4 (guarda), carta Mika sin abrir (pre-E10).
+- **Takina (bolsillos):** libreta mini, twin-ties repuesto, teléfono (3 tonos), bala real E1 (recuerdo/vergüenza, la tira N12). (Cuarto): uniforme perfecto, peluche chinanago ESCONDIDO, diario resultados, foto fuente (nueva).
+- **Mika (bolsillos):** llaves café, foto niñas, bala E13 (recuerdo/culpa), té. (Cuarto/oficina): guitarra guardada, foto Yoshi joven (secreto), armería limpia, furisode-recibo.
+- **Mizuki (bolso):** sake mini, revista, gafas repuesto, medalla ex-DA (fondo falso), catálogo. (Cuarto): vestidos omiai, fotos café (más que citas), diario vino.
+- **Kurumi (hoodie):** USBs ×5, flan vale,audífonos, peluche mini. (Closet): servidores, monitores, snacks, enka vinyl, caja "EVIDENCIA" (secretos incl. Mika; Jesús la ve N20+).
+- **Jesús (mochila):** laptop, Suica, foto familia MX, rosario?/amuleto (propuesta sensible: medallita Virgen*, respeto), cable, flan (ofrenda). (Cuarto café): commit-notes, app LycoReco (crece), foto N6. *religión: leve, respetuosa, jamás impuesta (veta: reza bajito N12, Chisato respeta).
+- **Uso:** 1 objeto por cap como leitmotiv (regla bancos AI).
+
+## Apéndice AL. Opiniones cruzadas (qué piensa cada uno de cada uno — 5×4 + Jesús)
+**De Chisato:** Takina "ruido que ordena mi silencio" | Mika "mi hija, mi perdón" | Mizuki "sol que me despierta cruda" | Kurumi "mamá que pellizca" | Jesús "hermana que abraza antes de preguntar".
+**De Takina:** Chisato "luna que aprendió sol" | Mika "hija formal que se suelta" | Mizuki "víctima favorita (con amor)" | Kurumi "manual andante (útil)" | Jesús "sargento que me mide y me quiere (creo)".
+**De Mika:** Chisato "mejor padre del mundo" | Takina "padre 2, respeto" | Mizuki "jefe/hermano, té vs sake" | Kurumi "papá-servidor (sé todo, callo todo)" | Jesús "don Mika (quiero ser como él… menos lo triste)".
+**De Mizuki:** Chisato "hermana borracha adorable" | Takina "ejemplo de qué NO hacer (la amo)" | Mika "hermana que bebe por dos" | Kurumi "roommate caos (botarga!)" | Jesús "casamentera peligrosa (hermanita)".
+**De Kurumi:** Chisato "hija digital" | Takina "caos útil" | Mika "hija silenciosa (gracias por callar)" | Mizuki "niña grande (avión!)" | Jesús "senpai cruel (llora con enka)".
+**De Jesús (prop, N24):** Chisato "hermano que llegó por wifi y se quedó por amor" | Takina "…familia. (Ineficiente. Mío.)" | Mika "hijo 4 (cuídalas)" | Mizuki "¡mi obra maestra! (¿novia?)" | Kurumi "aprendiz… no. Hermano. (BORRA ESO)".
+*FIN AL — Cierre doc abajo (AG ya). Verificar ~130 kB.*
+
+---
+
+## Apéndice AM. Cronología de vínculos (cómo evoluciona cada relación episodio a episodio)
+**Chisato×Takina:** E1 abrazo/rechazo → E2 fricción métodos → E3 "préstame fuerza" (acepta) → E4 1mm (sonríe) → E5 secreto corazón (guardiana) → E6 hogar (janken) → E7 stakeout (cómplices) → E8 3 tonos (cordón) → E9 velada (dolor) → E10 despedida (cierre) → E11 corre (deserta) → E12 captura juntas → E13 wire (salva) + Miyako (abrazo) + Hawái (viajan). S1–S6 familia hecha. Curva: colegas→hermanas. N: mentoras de Jesús (enseñan lo aprendido).
+**Chisato×Mika:** E1–E8 fondo cálido → E9 flashback (origen) → E10 furisode/perdón (cima) → E11–E12 rescate juntos → E13 mentira blanca (él mata, ella ignora) → Hawái (culpa a cuestas). Curva: padre→héroe→culpable amado. N: Jesús hereda culpa-compartida (N20 pacto).
+**Chisato×Kurumi:** E2 adopción → E6 perdón → E10 mejilla (ternura) → E11 corazón (salva) → E13 secreto (protege). Curva: extraña→hija→guardiana. N: Jesús puente (trío digital).
+**Chisato×Mizuki:** E1–E7 gags → E10 despedida (llanto) → E11 retorno (abrazo) → S3 leche (cómplices). Curva: colegas→hermanas. N: tías de Jesús (malas influencias buenas).
+**Takina×Mika:** E1 sermón → E6 consejo janken (confianza) → E9–E13 padre 2 (respeta, ignora culpa). Curva: jefe→padre. N: Mika aconseja sobre Jesús (paciencia).
+**Takina×Kurumi:** E2 recelo → E6 red (perdona) → E11 avión (manos) → E13 equipo (intel+campo). Curva: orden vs caos → equipo. N: entrenan a Jesús (fuego cruzado).
+**Takina×Mizuki:** E4 medidas (víctima) → E6 consejos (aliada) → S3 leche (cómplice). Curva: víctima→hermana. N: hacen equipo vs Chisato (gags).
+**Mika×Mizuki:** fondo E1–E9 (té/sake) → E10 cierre (colegas) → E11 retorno (familia) → E13 reapertura (socios). Curva: estable-cálida. N: narran pasado a Jesús (lore).
+**Mika×Kurumi:** E2 closet (refugio) → E6 culpa (protege) → E13 secreto (cómplices silencio). Curva: proveedor→co-culpable amado. N: pacto a 3 con Jesús (N20).
+**Mizuki×Kurumi:** E2 botarga (valientes) → E11 avión (fugitivas) → S3 leche (niñas). Curva: caos². N: dúo cómico + tías Jesús.
+**Quinteto×Jesús (prop):** N1 extrañeza → N2 prueba → N4 adopción → N6 familia (foto) → N9 secretos → N12 mitad (Hana) → N15 enka (alma) → N20 pacto (adulto) → N24 hermano (carta). Curva: cliente→empleado→hermano→familia. REGLA: cada vínculo previo intacto (Jesús suma, no resta).
+*FIN AM — FIN v2.1 — Verificar ~130 kB con wc -c — Ale 2026-10-07 — Siguiente 04 (~90 kB). ❤️💙*
