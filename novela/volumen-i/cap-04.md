@@ -44,6 +44,14 @@ Cuando la melodía terminó —diez minutos exactos, con un "¡gracias por su es
 
 —¿Y? —Obaa se encogió de hombros—. La gimnasia no pregunta la edad. El sello tampoco.
 
+Después de los sellos vino el té. Porque la pandilla de la gimnasia no se iba corriendo: se quedaba. Sacaban termos, vasos plegables, galletas de arroz. Se sentaban en las bancas a platicar —del clima, de los nietos, de la rodilla del señor calvo, de todo y de nada— y a Jesús lo sentaron en medio, le dieron té, y le preguntaron de todo: de México, del café, del pelo ("¿duele?" "Un poco" "¡La belleza duele!"), de si extrañaba su casa.
+
+—A veces —admitió él, con el vaso calientito entre las manos—. Pero... aquí también se siente casa. No sé explicar.
+
+—No hay que explicar —dijo el señor calvo—. El parque entiende. Por eso venimos. Algunos vivimos solos, ¿sabes? Esta —señaló al grupo con su vaso— es nuestra sala. Nuestro desayuno juntos. Vuelve mañana, mexicano. Aquí siempre hay té de más.
+
+Y Jesús, tomando té de más en una banca del parque a las siete de la mañana, rodeado de abuelitos que lo habían adoptado en diez minutos de gimnasia, pensó que Tokio coleccionaba familias para él sin pedirle permiso. Y que no le importaba. Ni tantito.
+
 Y Jesús se guardó la mano sellada en el bolsillo como un tesoro, pensando que llevaba cuatro días en Tokio y ya tenía deudas de flan, pelo falso, y una florecita rosa en la mano que valía más que todo.
 
 ---
@@ -311,6 +319,8 @@ Jesús se rió bajito y contestó:
 > *Me metieron uno. El mejor gol de mi vida. Y Kurumi: si usas mi florecita para chantaje, te acuso con Obaa. Ella sí da miedo.*
 
 > *Entendido. La florecita es sagrada. Buenas noches, recadero.*
+
+Antes de dormir, se miró la mano: la florecita rosa seguía ahí, apenas borrada por el agua y el día. Le tomó foto y se la mandó a Abuela Rosa: *"Mi primer sello japonés. Soy alumno de gimnasia. Tengo 18 años y me sellan la mano."* La respuesta llegó con tres emojis de risa: *"¡MI NIETO EL BAILARÍN! ¡Guárdala! ¡Esa mano no se lava en una semana!"* —"¡ABUELITA, QUÉ ASCO!" —"¡ES TU PRIMERA MEDALLA JAPONESA! ¡SE RESPETA!"
 
 Guardó el teléfono. Se puso los audífonos —esa noche sí había lluvia afuera, finita, de domingo—, y se durmió pensando en gimnasias de radio y sellos de florecita, en mandarinas y camarones, en cartas normales que ganaban partidas, en atajadas y tiros con curva imposibles, en guisos que sabían a "quédate un rato más", en videollamadas prometidas, y en un amuleto bordado colgado junto a un rosario tapatío.
 
