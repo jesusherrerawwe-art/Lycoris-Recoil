@@ -529,3 +529,51 @@ NOTA Ale: nombres EN menores + teatro villanos + Jin seiyū = completar v2.1 con
 ## Apéndice N. Sprites secundarios visual novel + SFX (lista producción)
 Majima (6: show/duelo/jugo/caída/prófugo/sonrisa) + SFX eco. Yoshi (5: amable/trajes/sombra/rehén/final) + maletín. Robota (4: glitch/dron/jack/huida) + modem. Himegama (3: secretaria/huida/KO) + tacones. Kusunoki (5: mando/té/purga/retirada/Hawái-call) + sello. Fuki (6: golpe/líder/transfusión/visita/foto/N24-sonrisa) + puño. Sakura (5: valor/herida/risa/fiebre/juegos) + vendajes. Erika (4: rehén/culpa/asalto/perdón) + disculpa. LilyBell (3: pared/duda/retirada) + radio. Jin (4: sombra/brazo/habló/brindis) + silencio. Civiles (Matsushita postal, Saori cámara, Abe libreta, mangaka pluma, oyabun anillo, Onuma mic). SFX master: jack-alarma, purga-sello, transfusión-goteo, risa-S5, fiebre-termómetro, tacos-aceite.
 *FIN N — Verificar ~90 kB — Ale 2026-10-07 — Siguiente 05 (~90 kB). ❤️💙*
+
+---
+
+## Apéndice O. Líneas de vida secundarios (nacimiento → Hawái/post)
+- **Majima:** ¿nace? (talento Alan?) → charm → old tower hace 10 años (vs niña Chisato) → red terror + Robota → E4 Oshiage → E6 obsesión → E10 jack + 1000 → E12 captura → E13 duelo + jugo + caída + hanabi → PRÓFUGO (habla con armado). Post: sombra S2 (¿nuevo caos?).
+- **Yoshi:** Alan carrera → asignado Chisato (corazón) → "salvador" → encarga Mika → observa años (cliente) → E7 bar (quiebre Mika) → E9 huye → E10 capturado Majima → E12 regaño → E13 MUERE (Mika). Post: fantasma (fotos, maletín, culpa).
+- **Robota:** hacker #2 → contratado Majima → E2 casa boom + coche → E6 video → E8–E11 guerra (pierde) → E10 jack (cima) → E13 ¿huye? Post: fantasma digital S2.
+- **Himegama:** Alan programa → secretaria Yoshi → E10–E12 huida (carga) → E13 KO Mika (8 seg). Post: ¿retirada? (sombra).
+- **Kusunoki:** DA carrera + Mika colega → comandante → E1 castiga Takina → E9–E10 opera → E12 pierde mando (sabotea purga) → E13 retirada → Hawái call (madre). Post: manda + protege (N18 ficha Jesús).
+- **Fuki:** DA + roommate Chisato → First → pareja Takina → E1 golpe → E7 visita → E11 asalto → E12 purga objetivo → E13 transfunde Sakura (elige) → S6 visita → reapertura. Post: líder madura + cumple 9/24 (fiesta N18).
+- **Sakura:** DA trainee → Second + Fuki → fondo E1–E10 → E11 asalto → E13 HERIDA + transfusión (vive) → S5 RISA (icono) → S6 fiebre 39. Post: 15→16 + juegos N15 + cumple 3/6 (fiesta N24).
+- **Erika:** DA + equipo → E1 REHÉN (culpa) → fondo culpa → E11 asalto (decide) → E13 vive → S6 visita (perdón). Post: perdonada + N8 POV + torpes club.
+- **LilyBell:** programa masculino → E11 despliegue → E12 purga (interrumpida) → E13 caos. Post: ¿disueltos? (hilo S2; N20 duda 1).
+- **Jin:** seguridad + Mika → hitman → E8 debut (brazo) → E13 visita (habló). Post: mentor N13 + omiai N18 + brindis N24.
+- **Matsushita:** vida + máquinas → E5 viaje (cima) → postal (paz). Post: santo (N9 espejo).
+- **Onuma/HQ:** poder → E10 ceremonia → E12 purga → E13 tapadera 500M. Post: sistema intacto (N21 fondo).
+
+## Apéndice P. Estilos de combate secundarios (coreografía distinta c/u)
+- **Fuki (llama/líder):** frontal + puños + gritos + protege espalda equipo. Ritmo: ¡ADELANTE! + golpe + cobertura. Frase: "¡Síganme!" Final: equipo vivo. Música: marcha.
+- **Sakura (cachorra/valiente):** entra primera + puntería buena + líneas LEGIBLES (gag: Chisato esquiva). Ritmo: ¡VOY! + ¡AY! + ¡OTRA VEZ! Final: herida leve + victoria. Música: pop rápido.
+- **Erika (disculpa/armada):** cubre + pide perdón + dispara cerrando ojos (mejora E11: abre ojos). Ritmo: ¡perdón! + ¡pum! + ¡PERDÓN! Final: objetivo + disculpa. Música: vals nervioso.
+- **Himegama (cuchilla):** CQB secretaria (tacones + maletín + llaves), infiltración (enfermera), escolta (cuerpo). Ritmo: silencio + corte. Final: KO vs Mika (escala). Música: cuerdas frías.
+- **LilyBell (pared):** formación + rifles + radio + avance. Ritmo: radio… fuego… avance. Final: interrumpen (caos). Música: coro masculino + botas.
+- **Jin (sombra):** 1 bala + 1 frase + se va. Ritmo: …pum. "Buen brazo." Final: contrato cumplido + café. Música: blues + silencio.
+- **Majima (show):** eco + teatro + caos + duelo. (Ver ficha 1.) **Yoshi (chequera):** huye + paga + ordena. (No pelea: por eso muere.)
+
+## Apéndice Q. Transcripciones 2 (S5 risa + S6 perdón + Hawái call)
+**Q.1 S5 risa (Sakura):** Takina salió en pijama. Silencio. Sakura la miró. La miró bien. Y entonces —desde el estómago, desde el alma, desde los 15 años— ESTALLÓ. "¡AJAJAJAJA! ¡Senpai! ¡Tu pijama! ¡Tiene…! ¡AJAJA!" Takina se puso roja, azul, transparente. "…Me cambio." "¡NO! ¡ESPERA! ¡FOTO! ¡AJAJA!" (Chisato, llegando: "¿Qué me perdí?" Fuki: "Historia.")
+**Q.2 S6 perdón (Erika × Takina):** Erika sostuvo la taza con dos manos. "Takina… yo… E1… por mi culpa…" Takina la interrumpió —no con palabras: le puso un plato enfrente. Parfait. Doble. "Come", dijo. "…¿Eh?" "Las disculpas con hambre no valen. Come. Y luego… ya estamos a mano." Erika lloró en el parfait. Sabía dulce. A perdón.
+**Q.3 Hawái call (Kusunoki × Chisato):** RING. RING. "¿Sí? ¡LycoReco Hawái! ¡Are you in trouble?" "…Chisato. Es Kusunoki. Hay trabajo." "¡Estamos en Hawái!" "Lo sé. …¿Cómo está Takina?" "¡Quemada del sol! ¡Feliz! ¡Ineficientemente feliz!" (Pausa. Sonido de té.) "…Cuídala. Y cuídate. …El trabajo espera." "¡Sí! ¡Aloha!" Click. Kusunoki sonrió 1mm. (Herencia Takina.)
+
+## Apéndice R. Apariciones N (tabla 24 caps — plan de secundarios)
+| N | Secundarios presentes | Foco |
+|---|---|---|
+| N1–N2 | Abe (caso), habituales | puerta |
+| N3–N4 | Robota (hackea), Sakura? (visita) | cocina/ciber |
+| N5–N6 | Fuki? (llamada), Obaa-chan | convivencia/foto |
+| N7–N8 | Saori (boda), Erika (POV), Abe | trío/perdón |
+| N9–N10 | Yoshi-flashback, Jin?, Himegama-fondo | corazón/turista |
+| N11–N12 | Robota (duelo), Fuki (apoyo), Kusunoki (llamada) | distancia/Hana1 |
+| N13–N14 | Jin (mentor), oyabun (susto) | entreno |
+| N15–N16 | Sakura+Erika (juegos), Fuki (evalúa) | jóvenes/equipo |
+| N17–N18 | mangaka (¿vive?), Majima-rumor, LilyBell-susto, Kusunoki (ficha), Jin (omiai), Fuki+Chisato fiesta | adultos/fiesta |
+| N19–N20 | LilyBell (duda), Fuki (respeta), Mika-pacto, Kurumi-secreto | víspera |
+| N21–N22 | Onuma TV, Abe, viaje (Miyako/Hawái), Sakura? (llamada) | viaje |
+| N23–N24 | TODOS (fiesta doble + Hana2 + carta): Fuki sonríe, Sakura ríe, Erika perdona, Kusunoki té, Jin brindis, Abe aplaude, Obaa-chan bendice, LilyBell? (1 mira lejos), Robota? (hackea felicitación), Majima? (rumor), Yoshi (reza) | FIESTA |
+**Regla:** 2–3 secundarios por cap (fondo vivo); TODOS en N24 (final coral). Ninguno opaca quinteto+Jesús.
+*FIN R — Verificar ~90 kB — Ale 2026-10-07 — Siguiente 05 (~90 kB). ❤️💙*
