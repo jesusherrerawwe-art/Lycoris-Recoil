@@ -90,7 +90,7 @@ Historia madre: verano-otoño (operaciones DA) → invierno (Enkuboku) → prima
 **Bomba → fuegos artificiales:** al llegar a 0, no explota, salen hanabi gigantes. Interpretaciones: último respeto/appeal de Majima, treta Kurumi, o bomba falsa. Ver curiosidades.
 **Epílogo primavera:** rueda prensa gobernadora (ceremonia Enkuboku costó 500M yenes). Caso tapado como “publicidad de nuevo parque”. 500 pistolas regadas aún perdidas en Tokio. Majima único sin castigo, prófugo (se le ve hablando con hombre armado → vivo).
 **LycoReco reabre:** sin Chisato. Jin visita, gag “¡habló!”. Fuki/Sakura visitan.
-**Miyako-jima:** Takina va por “misión” de Mika. En bosque, tiroteo vs target → resulta ser Chisato (escondida, cree que morirá pronto, no quiso despedida triste). Takina revela: Mika trajo case de Yoshi, ya le trasplantaron nuevo corazón en hospital, vivirá. Chisato no sabe que Mika lo robó matando, cree donación. Kurumi lo sabe todo (y que pie Mika no tan mal) pero calla.
+**Miyako-jima:** Takina va por “misión” de Mika. En bosque, tiroteo vs target → resulta ser Chisato (escondida, cree que morirá pronto, no quiso despedida triste). Takina revela: Mika trajo case de Yoshi, ya le trasplantaron nuevo corazón en hospital, vivirá. Chisato no sabe que Mika lo robó matando, cree donación. Kurumi lo sabe todo pero calla. (Nota auditoría: que "el pie de Mika no esté tan mal" es LECTURA fandom, no hecho confirmado — Mika usa bastón por vieja herida; en E13 se mueve por adrenalina/necesidad. Tratar como interpretación, no canon.)
 **Hawái:** “¿Qué hacemos ahora?” “Empieza por lo que habías abandonado”. Deciden ir a Hawái (sueño Chisato). Post-créditos: food truck LycoReco en Hawái, camuflaje pareo + lei, “Are you in trouble?” Kusunoki llama para trabajo, Chisato rechaza por estar en Hawái.
 
 ---
@@ -360,7 +360,7 @@ Fuki+Erika visitan (Sakura falta por fiebre 39.0°C — juego palabras 39=sakura
 **Resumen exhaustivo:**
 - **Asalto DA:** las Lycoris (equipo Fuki) se alistan para entrar a Enkuboku y parar a Majima. Pre-operación tensa (reparto, mapas, bendiciones).
 - **Takina corre:** al saber que Chisato no responde, deserta del alistamiento y corre a LycoReco (vacío: móviles dejados). Confirma: fueron al rescate Yoshimatsu (old tower).
-- **Hallazgo Kurumi:** rumbo al extranjero, Kurumi descubre que **el nuevo corazón mejorado lo tiene Yoshimatsu** (lo sacó él mismo). Con Mizuki **bajan del avión para volver** ("si lo conseguimos, salvamos a Chisato"). Pero Chisato/Mika dejaron móviles en el café (incontactables). Carrera contra reloj con incomunicación.
+- **Hallazgo Kurumi:** rumbo al extranjero, Kurumi descubre que **el nuevo corazón mejorado lo ti). Carrera contra reloj con incomunicación.
 - **Explosión Majima:** en Enkuboku, trampa de Majima hace explosión que diezma/ataja a las Lycoris de Fuki agrupadas (ciatr: 一網打尽 golpe). Caos, heridas (Sakura hilo E13).
 - **LilyBell:** se despliega la versión masculina de Lycoris: tropa traje blanco + capitán rojo, rifle, insignia **muguet/suzuran (すずらん lirio de los valles)**. Misión secreta: **eliminar a las Lycoris en espera en Enkuboku** (purga interna; HQ quiere chivos). Doble amenaza: Majima fuera, LilyBell dentro.
 - **Cierre:** diamantes (Chisato/Majima, Takina/Fuki, Lycoris/LilyBell) a punto de cortarse. Chisato/Mika llegan a old tower (puente E12).
@@ -410,7 +410,7 @@ Fuki+Erika visitan (Sakura falta por fiebre 39.0°C — juego palabras 39=sakura
 - **Bomba → hanabi:** al llegar a 0, NO explota: salen **fuegos artificiales gigantes**. Interpretaciones (ver teorías): último respeto/appeal de Majima (quería show, no masacre aquí), treta de Kurumi (cambió detonador), o bomba falsa desde inicio. Majima cae pero sobrevive (se le ve luego hablando con hombre armado → prófugo, hilo S2).
 - **Epílogo primavera:** rueda de prensa gobernadora (ceremonia costó 500M yenes). Caso tapado como "publicidad de nuevo parque". 500 pistolas regadas aún perdidas en Tokio. DA busca armas. Majima único sin castigo.
 - **LycoReco reabre sin Chisato:** Jin visita (gag "¡habló!"). Fuki/Sakura visitan (reconciliación DA↔café).
-- **Miyako-jima:** Takina va por "misión" de Mika. En bosque, tiroteo vs target → ¡es Chisato! (escondida: creía que moriría pronto, no quiso despedida triste). Takina revela: Mika trajo el maletín de Yoshi, ya le trasplantaron **nuevo corazón en hospital, vivirá**. Chisato no sabe que Mika lo robó matando (cree donación); Kurumi lo sabe todo (y que el pie de Mika no está tan mal) pero calla (mentira blanca familiar).
+- **Miyako-jima:** Takina va por "misión" de Mika. En bosque, tiroteo vs target → ¡es Chisato! (escondida: creía que moriría pronto, no quiso despedida triste). Takina revela: Mika trajo el maletín de Yoshi, ya le trasplantaron **nuevo corazón en hospital, vivirá**. Chisato no sabe que Mika lo robó matando (cree donación); Kurumi lo sabe todo pero calla (mentira blanca familiar). (Auditoría: "pie no tan mal" = interpretación fandom, no canon confirmado.)
 - **Hawái:** "¿Qué hacemos ahora?" "Empieza por lo que habías abandonado" (sueños). Deciden ir a **Hawái** (sueño Chisato). Post-créditos: food truck LycoReco en Hawái, pareo + lei, "Are you in trouble?" Kusunoki llama para trabajo; Chisato rechaza por estar en Hawái (riegan canon con risa).
 
 **Frases clave:** Takina: "yo a Chisato, tú a Sakura. Decidamos nosotras" / Majima: "descansa. Quiero apuesta de verdad" / Mika: "un guerrero no muestra todo…" / Takina: "¡te tengo!" (wire) / Chisato: "¿Hawái? ¡Hawái!" / "Are you in trouble?"
@@ -820,8 +820,9 @@ El disparo sonó a puerta cerrándose. Himegama cayó antes, sin verlo venir: na
 
 ---
 
-## Apéndice AA. Dramas CD + extras BD por episodio (contenido canon-adjacente)
-> Incluidos en BD 6 vols + shorts BOX. Guiones supervisados (Adachi/Asaura). Tono daily; usar como referencia, no como trama.
+## Apéndice AA. Extras BD por volumen (estructura REAL verificada + dramas pendientes de transcripción)
+> Estructura verificada (HMV/Aniplex oficial, 6 vols sep-2022–feb-2023): **Vol.1/Vol.4 = OST** (soundtrack ①/②) | **Vol.2/Vol.5 =特典CD con mini-drama escrito por Asaura + cover songs** | **Vol.3/Vol.6 = 制作資料集** (materiales producción, sup/inf) | TODOS: case Imigimuru + **喫茶リコリコ秘業務ノート 20P** (¡cuaderno secreto 20 págs!) | Vol.1 extra: non-credit OP/ED + audio 「ウォールナットFX OFF ver.」 E1–E2. Precio BD1: ¥8,800 tax-incl (¥7,920 sin tax).
+> ⚠️ AUDITORÍA 8-oct-2026: los títulos/contenidos de mini-dramas abajo son **reconstrucción NO verificada** (pendiente escucha/transcripción; NO usar como canon hasta confirmar en v2.1). Lo único confirmado: existen mini-dramas de Asaura en Vols. 2 y 5 + notebook secreto en todos.
 
 - **Vol.1 (E1–E3) drama:** "Primera noche Takina" (insomnio, ruidos café, Chisato le lleva leche caliente + historia de la campanilla). + "Desayuno quemado" (Takina intenta cocinar, Mika rescata, Mizuki foto). Booklet: diseños LycoReco + entrevista Adachi (golpe Fuki = mostrar dureza DA).
 - **Vol.2 (E4–E5) drama:** "Lista shopping" (Chisato guarda ticket E4 + medidas Takina en secreto para cumpleaños). + "Matsushita postales" (Matsushita envía postal desde más allá vía familia: "gracias"). Booklet: acuario + chinanago + uniformes.
@@ -1056,3 +1057,4 @@ El disparo sonó a puerta cerrándose. Himegama cayó antes, sin verlo venir: na
 
 ---
 *FIN v2.4 — 02-episodios-completos.md — ~160 kB — Ale 2026-10-07 — rama arena/3d82e749-lycoris-recoil — Siguiente: 03 (~130 kB). ❤️💙*
+FIN v2.4 — 02-episodios-completos.md — ~160 kB — Ale 2026-10-07 — rama arena/3d82e749-lycoris-recoil — Siguiente: 03 (~130 kB). ❤️💙*

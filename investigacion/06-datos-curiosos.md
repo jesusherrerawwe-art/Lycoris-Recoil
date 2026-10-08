@@ -143,7 +143,7 @@ Minutado? (¡pendiente-v2.1!: setlist-BGM-minuto×minuto per-README). USO N: "pl
 ### 16.1 Dúo-protagónico (JP)
 - **Anzai Chika (安済知佳) = Chisato**: ¿otros? (¡buscar-v2.1!; stub: "personaje-parecido-Takina-en-otra-obra → fanarts-comparativos" ¡identificar-obra!). Voz: sol-con-filos? (alegre + quiebre-E12). USO N: voz-mental-ES (doc-04-W-casting).
 - **Wakayama Shion (若山詩音) = Takina**: ¿debut? ¿otros? (¡buscar-v2.1!). Voz: hielo-derrite (fría-E1 → cálida-E13). USO N: arco-voz (N1-fría? ¡NO! ¡post-E13-cálida! ¡cuidado!).
-- **Resto-quinteto**: Mizuki (¿Ueda? ¡verificar! ¡Ueda Reina? ¡NO! ¡buscar!), Mika (¿Sakakibara? ¡buscar!), Kurumi (¿Shirasawa? ¡buscar!). (¡v2.1: quinteto-completo + 43-lista-Abema!). USO N: voces-mentales (leer-diálogo-oyendo-JP).
+- **Resto-quinteto (RESUELTO auditoría, ver doc 01)**: Mizuki = 小清水亜美 Koshimizu Ami, Mika = さかき孝輔 Sakaki Kōsuke, Kurumi = 久野美咲 Kuno Misaki. (¡v2.1: 43-lista-Abema transcrita!). USO N: voces-mentales (leer-diálogo-oyendo-JP).
 
 ### 16.2 EN-dub (Bang-Zoom-Burbank; Lizzie-Freeman + Xanthe-Huynh per-stub-§1)
 ¿Quién-es-quién? (¡confirmar-v2.1!: Freeman = Chisato? Huynh = Takina? ¡probable!). Dirección-Burbank (estilo-anime-EN). USO N: comparar-JP/EN (¿tono? ¿gags-adaptados? ¡curiosidad!).
@@ -412,7 +412,7 @@ Dúo + quinteto + DA + villanos + civiles (¡43-nombres-JP + romaji + rol!). USO
 
 ## APÉNDICE C. Banco-guiños-meta (30 easter-eggs para-sembrar-N!)
 
-1. "21-mil" (Kurumi-hack) 2. 39/Sakura (reloj? precio?) 3. 634 (ticket? altura?) 4. Banca-diálogo (N1) 5. Chinanago-pose (Jesús!) 6. SakaNA-grito (acuario!) 7. Listón-viento (emoción!) 8. Pañuelo-sin-mirar (heredar!) 9. Taza-kintsugi (tesis!) 10. Semilla-corazón (faint!) 11. Dajare-números (mi-ni!) 12. Kanji-nombres (caligrafía!) 13. OP-tarareo (Chisato!) 14. ED-1-línea (N24!) 15. BGM-mención (Kurumi!) 16. Manga-dentro (N17!) 17. Teatro-dentro (obra!) 18. Impresora-maldita (N4!) 19. Crepa-mordida (Fuki!) 20. Bento-amor (viaje!) 21. Nabe-humo (invierno!) 22. Yukata-festival (verano!) 23. Nieve-Tokio (milagro!) 24. Gato-barrio (maullar!) 25. Banca-vacía (memoria!) 26. Puerta-abierta (cierre!) 27. DOKI-doble (cumbre!) 28. Té-después (ritual!) 29. Goma-siempre (ética!) 30. Parfait-gigante (N24!).
+1. "21-mil" (Kurumi-hack) 2. 39/Sakura (reloj? precio?) 3. 634 (ticket? altura?) 4. Banca-diálogo (N1) 5. Chinanago-pose (Jesús!) 6. SakaNA-grito (acuario!) 7. Listón-viento (emoción!) 8. Pañuelo-sin-mirar (heredar!) 9. Taza-kintsugi (tesis!) 10. Semilla-corazón (faint!) 11. Dajare-números (mi-ni!) 12. Kanji-nombres (caligrafía!) 13. OP-tarareo (Chisato!) 14. ED-1-línea (N24!) 15. BGM-mención (Kurumi!) 16. Manga-dentro (N17!) 17. Teatro-dentro (obra!) 18. Impresora-maldita (N4!) 19. Crepa-mordida (Fuki!) 20. Bento-amor (viaje!) 21. Nabe-humo (invierno!) 22. Yukata-festival (verano!) 23. Nieve-Tokio (milagro!) 24. Gato-barrio (maullar!) 25. Banca-vacía (memoria!) 26. Puerta-abierta (cierre!) 27. DOKI-doble (cumbre! ¡regla 無拍動: late el OTRO, no Chisato!) 28. Té-después (ritual!) 29. Goma-siempre (ética!) 30. Parfait-gigante (N24!).
 
 ## APÉNDICE D. Fuentes-JP (links + qué-dio-cada-una)
 
@@ -456,7 +456,8 @@ BD-import? (¿¥7,920 → $MX?) + Marui-gun (¿$8k-MX?) + novelas-import (¿Amaz
 
 ## APÉNDICE G. Pendientes-v2.1 (lista-caza-Ale!)
 
-Birthdays-oficiales? + blood-types? + Kurumi-edad? + Takina-kanji? + otros-nombres-plantas? + seiyuu-quinteto? + Anzai-obra-Takina? + EN-quién? + premios? + streaming-ranks? + fukusen-flor-dónde? + fuusenkazura-hanakotoba? + Mutsuki-nombre? + Ema-nombre? + BGM-minutado? + Glock-21-vs-17? + LilyBell-armas? + DA-arsenal? + Yuhi-dónde? + Hawái-isla? + Blue-Turtle-menú? + PVs-lista? + eyecatches? + 39-resolver? + collabs-completos? + merch-precios? + manga-ES-licencia? + fandom-ES? + Ben-To-leer? + Adachi-historia? + comité-lista? + 43-voces? + Sayuri-fecha? + S2-avance?
+RESUELTOS-auditoría-8-oct (quitar de caza): Birthdays-oficiales ✓ (9/23, 8/2, 9/24, 3/6, 12/16) + blood-types-quinteto ✓ + Takina-hiragana ✓ + seiyuu-quinteto ✓ (doc 01) + Mutsuki ✓ + Ema-Kazutaka ✓ + Sayuri-fechas ✓ + teatro-2-solo ✓ + BD-estructura ✓ + Yoshi-Ueda-Yōji ✓ + Enkuboku-634 ✓.
+SIGUEN-v2.1: Kurumi-edad? + otros-nombres-plantas? + Anzai-obra-Takina? + EN-quién-es-quién? + premios? + streaming-ranks? + fukusen-flor-dónde? + fuusenkazura-hanakotoba? + BGM-minutado? + LilyBell-armas? + DA-arsenal? + Yuhi-dónde? + Hawái-isla? + Blue-Turtle-menú? + PVs-lista? + eyecatches? + 39-resolver? + collabs-completos? + merch-precios-MX? + manga-ES-licencia? + fandom-ES? + Ben-To-leer? + comité-lista? + 43-voces-transcribir? + drama-CD-transcribir (V2/V5)? + notebook-20P-contenido? + S2-avance?
 
 ## APÉNDICE H. Compromiso-Ale-doc-06 (firmado!)
 
@@ -696,7 +697,7 @@ Animate-café? EJ? (¡menús! ¡parfait-Chisato! ¡curry-Takina! ¡buscar-v2.1!)
 ## APÉNDICE N. Trivia-30 (¿cuánto-sabes? ¡respuestas-abajo!)
 
 1. ¿Apellido-Chisato-kanji? 2. ¿Giboushi-dónde-dicen-Takina? 3. ¿634-significa? 4. ¿BD1-cántas? 5. ¿Novela-ranking-2022? 6. ¿Marui-ficticia-base-Chisato? 7. ¿Takina-pistola? 8. ¿Mika-sniper? 9. ¿Glock-teatro? 10. ¿Onai-viste-quién? 11. ¿First-color? 12. ¿ED-POV-2番? 13. ¿boku-quién? 14. ¿Semilla-corazón-flor? 15. ¿Sayuri-años? 16. ¿Banca-dónde? 17. ¿Modelo-café? 18. ¿Oshiage-B3-qué? 19. ¿Chinanago-grito? 20. ¿Blue-Turtle-dónde? 21. ¿Teatro-fechas? 22. ¿Chisato-actriz? 23. ¿Tagline-JP? 24. ¿39-qué? 25. ¿Robota-segundos-nombre? 26. ¿Risa-cada-cuánto? 27. ¿Imigimuru-nunca-qué? 28. ¿Ben-To-quién? 29. ¿Higanbana-cuándo? 30. ¿Sprengeri-qué-color?
-RESPUESTAS: 1-錦木 2-oeste-JP 3-Mu-Sa-Shi 4-21k 5-5º 6-Strike-Warrior 7-M&P9L 8-M700 9-G17 10-Nogizaka 11-rojo 12-Chisato 13-Chisato 14-fuusenkazura 15-1996-2024 16-Kinshicho-Park 17-Sumida-Coffee 18-cita+tiroteo 19-sakana-chinanago 20-Miyako 21-1-7~15-2023 22-Kawauchi-Misato 23-futari-mada-owaranai 24-Sakura-san-kyu 25-0.5 26-5-min 27-anime-y-3D 28-Asaura 29-equinoccio-sep 30-casi-azul-rosado. ¡30/30 = LycoReco-master! ¡café-premio! ☕
+RESPUESTAS: 1-錦木 2-oeste-JP 3-Mu-Sa-Shi 4-21k 5-5º 6-Strike-Warrior 7-M&P9L 8-M700 9-G17 10-Nogizaka 11-rojo 12-Chisato 13-Chisato 14-fuusenkazura 15-1996-2024-9-20 16-Kinshicho-Park 17-Sumida-Coffee 18-cita+tiroteo 19-sakana-chinanago 20-Miyako 21-1-7~15-2023 22-Kawauchi-Misato 23-futari-mada-owaranai 24-Sakura-san-kyu 25-0.5 26-5-min 27-anime-y-3D 28-Asaura 29-equinoccio-sep 30-casi-azul-rosado. ¡30/30 = LycoReco-master! ¡café-premio! ☕
 
 *FIN-REAL DOC 06 v2.0 — Ale Medina 🪷 (verificar wc -c).*
 
@@ -712,4 +713,5 @@ Teaser-1? (¿cuándo? ¡2021? ¡anuncio-proyecto!) + PV1 (¿personajes?) + PV2 (
 
 PLANTILLA: 「次回、[N-título]！[gancho-1-línea]！[personaje-grita-algo]！」("¡Próxima: ¡N! ¡gancho! ¡grito!"). Ej-N1: "¡Próxima: Llegada! ¡Un-chico-en-LycoReco! ¡Chisato: ¡BIENVENIDOOOO!". USO: escribir-24-avances (¡al-publicar-cada-N! ¡anime-ritual!).
 
+*FIN-FINAL DOC 06 v2.0 — Ale Medina, 7-oct-2026. ¡6/7 COMPLETO! 🪷❤️💙 (wc -c verificar).*
 *FIN-FINAL DOC 06 v2.0 — Ale Medina, 7-oct-2026. ¡6/7 COMPLETO! 🪷❤️💙 (wc -c verificar).*

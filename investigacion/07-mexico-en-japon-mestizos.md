@@ -94,7 +94,7 @@ Exterior-Enomoto (¡Goryokaku! ¡Hokkaido-modelo!) → asociación-colonial → 
 WWII (¿México-Japón? ¡ruptura? ¡buscar-v2.1!; LA-matrimonios-JP-MX → mudanza-JP-guerra! EN-wiki!). Post-guerra: nikkei-MX-crece (¡CDMX! ¡Chiapas! ¡Michoacán! ¡SLP!); hoy-~20,000 (Weblio!). Famosos: Luis-Nishizawa (¡pintor! ¡muralismo!), Eiji-Matsuda? (¡actor!), Fumiko-Hamada? , Bárbara-Mori (¡Rubí! ¡actriz!). Mayoría-ES-solo + católicos (¡pocos-JP!). USO N: cameos (¿cliente-nikkei? ¡N7! ¡"¡mi-abuelo-Chiapas!"!).
 
 ### 7.5 Hoy (EPA + vuelos + turistas!)
-EPA-2005 (¡acuerdo-económico! [verificar-detalle-v2.1]); vuelos-directos-Narita-CDMX (¡ANA/Aeroméxico!); turistas-MX-JP: 151,835-2024 (¡RÉCORD! JNTO-honichi!); in-JP: 3,702-mexicanos-dic-2024 (¡3,504-2023! ¡crece!; Tokio/Osaka/Kobe/Okinawa; ¡mayor-latino-no-nikkei! ¡4º-hispano-tras-PE/BO/ES!). Migración-70s-vía-USA (¡LA-MX→JP! EN-wiki!). USO N: turistas-N (¡N-MX! ¡Jesús-guía! ¡Asakusa! ¡Skytree!).
+EPA-2005 (¡1-abr-2005 entra en vigor! MOFA + Embajada-MX-Tokio: 2º EPA de Japón, 1º con Latam; comercio +85% e inversión +266% en 10 años); vuelos-directos-Narita-CDMX (¡ANA/Aeroméxico!); turistas-MX-JP: 151,835-2024 (¡RÉCORD! JNTO-honichi!); in-JP: 3,702-mexicanos-dic-2024 (¡3,504-2023! ¡crece!; Tokio/Osaka/Kobe/Okinawa; ¡mayor-latino-no-nikkei! ¡4º-hispano-tras-PE/BO/ES!). Migración-70s-vía-USA (¡LA-MX→JP! EN-wiki!). USO N: turistas-N (¡N-MX! ¡Jesús-guía! ¡Asakusa! ¡Skytree!).
 
 ## 8. Mexicanos-en-Japón-hoy (vivir-MX-en-Tokio!)
 

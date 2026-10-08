@@ -517,7 +517,7 @@ DA/Direct-Attack (ataque-directo), LilyBell (lirio-campana), Alan (instituto-tal
 2. ¿Robota plan? (S2? nuestra-N: hilo).
 3. ¿Gluttony qué platos? (leer → v2.1).
 4. ¿Manga V10+? (seguir; original vs S2).
-5. ¿Teatro 4th? (¿S2-adaptación? ¡ojalá!).
+5. ¿Teatro 3rd? (solo hay 2 montajes verificados; ¿S2-adaptación futura? ¡ojalá!).
 6. ¿Romance canon? (S2? faint-siempre?; nuestra: Chuy-decide-N20).
 7. ¿Jesús se queda? (¡SÍ! N24 lo abraza; Chuy-confirma).
 8. ¿Boda-N24? (Mizuki-boda? ¡META! decidir Chuy).
@@ -621,7 +621,7 @@ Jesús-poder (no-supera-Chisato; aprende). Jesús-harem (faint-siempre; Chuy-dec
 Tres. (Respira.) Dos. (Mira: izquierda-puerta, derecha-ventana, centro-Chisato-sonríe.) Uno. DON: puerta. BAN-BAN (¡goma! ¡siempre-goma!): izquierda-cae. Chisato-VUELA (wire? ¡piernas! ¡siempre-piernas!): giro, patada, BAN: derecha-cae. Silencio. GYUT?: ¡Jesús-abrazo! (¡sobrevivimos!). — ¿Viste? — Chisato guiño, listón-intacto —. ¡Ni despeiné! — Takina revisó-pulsos (vivos, dormidos, goma): — … Limpio. — Mika-té-después (siempre-té-después). (NOTA-Ale: números + paréntesis-cuerpo + SFX + té-después = plantilla-acción; goma-siempre; Chisato-guiño; Takina-limpio.)
 
 ### M.5 Noche-familia (Asaura-cierre-mode)
-FUTÓN (guerra? ¡paz! ¡hoy-paz!). Chinanago-noche (flotan, sueñan?). Kurumi-ronquidito (teclado-abrazo). Mizuki-última (ventana, vino? ¡té! ¡Mika-cambia-vino-por-té! ¿cuándo? ¡sembrar!). Mika-apaga (luces, 1-por-1, ritual). Chisato-Takina (cabezas-juntas, susurro): — Hoy… — Hoy estuvo… — ¿Rico? — … Rico. — ¡Je! ¡Mi palabra! — ¡Nuestra! — DOKI-DOKI (¿corazón? ¿cuál? ¡ambos! ¡laten-juntos!). Puerta-abierta (mañana-más). FIN-N (pero NO-fin: ¡mañana-más!). (NOTA-Ale: ritual-apagar + susurro-mitades + DOKI-doble + puerta = plantilla-cierre-N; variar-susurro cada-N; Jesús-dónde? ¡futón-esquina! ¡ronca-poquito! ¡familia!).
+FUTÓN (guerra? ¡paz! ¡hoy-paz!). Chinanago-noche (flotan, sueñan?). Kurumi-ronquidito (teclado-abrazo). Mizuki-última (ventana, vino? ¡té! ¡Mika-cambia-vino-por-té! ¿cuándo? ¡sembrar!). Mika-apaga (luces, 1-por-1, ritual). Chisato-Takina (cabezas-juntas, susurro): — Hoy… — Hoy estuvo… — ¿Rico? — … Rico. — ¡Je! ¡Mi palabra! — ¡Nuestra! — DOKI-DOKI (latido de Takina; Chisato = silencio-tibio mecánico 無拍動; "laten-juntos" = ella presta su latido). Puerta-abierta (mañana-más). FIN-N (pero NO-fin: ¡mañana-más!). (NOTA-Ale: ritual-apagar + susurro-mitades + DOKI-doble + puerta = plantilla-cierre-N; variar-susurro cada-N; Jesús-dónde? ¡futón-esquina! ¡ronca-poquito! ¡familia!).
 
 ## APÉNDICE N. EXTRAS oficiales (BD/DVD, eventos, colaboraciones; canon-adjacent)
 
@@ -701,3 +701,5 @@ Creo: leer = mudarse (24-N = 24-semanas? ¡ritmo-publicación! ¿semanal? ¡Chuy
 A Chuy (Jesús): por-confiar (escritora-futura en-juego; no-fallo). A Adachi/Asaura/Imigimuru/Bizen/Abe (creadores: casa-prestada; cuido-bien). A Chisato (rubia-clarita, NO-pelirroja, ¡JAMÁS-olvido!): por-sonreír (enseñas-vivir). A Takina: por-crecer (enseñas-cambiar). Al café-LycoReco (que-existe? ¡SÍ! ¡en-corazón!): por-abrir-puerta. Al lector-futuro: por-entrar (hay-pastel). A Ale-Medina (yo): por-terminar-doc-05 (¡5/7! ¡casi! ¡café-bien-merecido!). 🪷☕
 
 *FIN DOC 05 v2.0 REAL — Ale Medina, 7-oct-2026. wc -c: ¡verificar! (~90kB objetivo). Siguiente: doc 06 (Chuy-autoriza). ¡GRACIAS-POR-LEER! (¿leíste-todo? ¡te-quiero! ¡hay-más! ¡N1-pronto!).*
+? ¡te-quiero! ¡hay-más! ¡N1-pronto!).*
+oct-2026. wc -c: ¡verificar! (~90kB objetivo). Siguiente: doc 06 (Chuy-autoriza). ¡GRACIAS-POR-LEER! (¿leíste-todo? ¡te-quiero! ¡hay-más! ¡N1-pronto!).*

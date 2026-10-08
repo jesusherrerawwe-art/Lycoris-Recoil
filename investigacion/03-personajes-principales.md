@@ -27,7 +27,7 @@
 
 **Trasfondo completo (spoilers):**
 - Huérfana con cardiopatía congénita, corta esperanza. Niño prodigio: le dieron uniforme First desde pequeña (“殺しの天才 / genio asesino”).
-- Alan Institute la elige vía **Yoshimatsu Shinji**, que sin dar nombre se presenta: “sashizume, kimi no kyūseishu da”. Le implantan **corazón artificial sin pulso, última generación** (luego mejorado). Ella malinterpreta (para Yoshimatsu) “ser salvadora” como salvar vidas, no quitarlas. Adoptan mantra no-matar. Mika como instructor/padre la cría en libertad, no como arma.
+- Alan Institute la elige vía **Yoshimatsu Shinji**, que sin dar nombre se presenta: “sashizume, kimi no kyūseishu da”. Le implantan **corazón artificial sin pulso (無拍動人工心臓), última generación** por **cardiopatía congénita (先天性心疾患)** que le daba poca esperanza de vida (JP wiki). ⚠️ Motivo DOKI-DOKI en nuestra novela = LICENCIA POÉTICA (su corazón canon NO late; si se usa "latido", que sea Takina/Jesús oyendo el suyo propio junto a ella, o hub mecánico — jamás latido de Chisato sin nota Ale). Ella malinterpreta (para Yoshimatsu) “ser salvadora” como salvar vidas, no quitarlas. Adoptan mantra no-matar. Mika como instructor/padre la cría en libertad, no como arma.
 - A los ~7-10 años resuelve **sola el secuestro de la Old Radio Tower**, leyenda DA. Por eso la conocen todas.
 - De adulta joven se va de HQ a LycoReco con Mika (¿castigo suave? ¿elección?). Mantiene vínculo: a veces la llaman de apoyo. No recuerda cara de salvador: cuando Yoshi visita café 10 años después, lo ve como cliente buena onda, no reconoce.
 - Arco T1: de mentora que finge no necesitar a nadie a aceptar que necesita ser salvada (por Takina/Mika). Intenta cerrar café para no arrastrarlas a su muerte, falla porque la aman. Aprende a pedir ayuda. Final: acepta nuevo corazón (robado a Yoshi por Mika) y permiso para vivir y soñar (Hawái).
@@ -79,7 +79,7 @@
 
 ## 3. ミカ Mika — manager/padre (48)
 **CV: さかき孝輔 Sakaki Kōsuke. EN: ? (ver cast 43). Stage: 北村圭吾 Kitamura Keigo.**
-**48 años, 13-jul, O.** Ex-instructor DA, sensei de Chisato, figura paterna. Alto, negro, africano (orden Adachi, ref futbolistas), usa **kimono/wafuku con estilo (いなせ / inase)**. Cojo con bastón (pero finge peor: realmente puede moverse; Kurumi lo sabe). Barista/pastelero excelente.
+**48 años, 13-jul, O.** Ex-instructor DA, sensei de Chisato, figura paterna. Alto, negro, africano (orden Adachi, ref futbolistas), usa **kimono/wafuku con estilo (いなせ / inase)**. Cojo con bastón por vieja herida (auditoría: "finge peor" es lectura fandom, no canon; en E13 se mueve por adrenalina/necesidad). Barista/pastelero excelente.
 **Rol:** Ventana DA (habla directo con Kusunoki), francotirador/conductor cuando hace falta (M700). Desarrolló balas no-letales Chisato. Negoció con superiores para frenar LilyBell vs Chisato. Mató a Yoshimatsu (amigo/amante queer-coded) llorando para darle corazón a Chisato. Miente por amor (“guerrero no muestra todo”).
 **Voz:** grave, pausado, proverbios. Llama a Chisato por nombre, a Takina “Takina-kun”? (revisar). Cocina mientras aconseja.
 
@@ -503,7 +503,7 @@ E1 masacra/castigada/llega rígida. E2 escolta eficiente + fricción métodos. E
 - 9/23 Chisato 17 (Libra): E10–E12 caen ~septiembre… ¿cumpleaños en guerra? E12 17-sep emisión ≈ in-universe septiembre: Chisato cumple 18 EN PLENA BATALLA (nadie festeja = tragedia silenciosa). NUESTRA NOVELA: festejo tardío N18 ("cumple atrasado, con Hana"). Takina llora (olvidó). Jesús programa pastel-app.
 - 12/16 Kurumi ?* (registro?): cae post-E13 (invierno, pre-primavera). ¿Festejar registro o inventar real? N24: Jesús le regala cumpleaños ELEGIDO (familia elige fecha). Momento lágrima.
 - 2/3 Setsubun? no. 3/2 JESÚS HERMANO (Piscis, cumple REAL meta): N24 = fiesta doble (fin novela + cumpleaños Jesús). Meta-regalo cierra círculo.
-- Mizuki/Mika cumpleaños desconocidos*: festejar "día del café" (aniversario LycoReco) como cumpleaños familia N6. Ale propone fecha: 7/2 (emisión E1, meta-guiño).
+- Cumples adultos CONFIRMADOS (auditoría 8-oct, JP wiki): Mizuki 6/5 + Mika 7/13 (¡ambos O! ¡ambos verano!). N6 = "día del café" (7/2 emisión E1, meta-guiño) ADEMÁS de sus cumples (¡3 fiestas verano! ¡N-festejo-triple?).
 
 ## Apéndice G. Psicología: apegos, traumas, lenguajes de amor (para escribir hondo)
 - **Chisato:** apego ansioso-evitativo (abraza fuerte, huye despedidas). Trauma: fecha caducidad + fama niña + padres disputados. Lenguaje: contacto físico (abrazos) + tiempo calidad (película). Terapia: Takina (constancia) + Mika (perdón) + Jesús (hermano que se queda).
@@ -753,7 +753,7 @@ Takina miró su obra arruinada. Miró a sus hermanas tosiendo leche y risa. Y…
 ## Apéndice AG. Fuentes + índice + cierre v2.0
 **JP oficiales:** lycoris-recoil.com/character (+?chara=mika) | Aniplex lineup | JP wiki (fichas: Chisato 17 9/23 AB 162; Takina 16 8/2 A 160 + twins café; Kurumi edad? enka 12/16; Fuki 17 9/24 A; Glock21; registro cumpleaños; licencia) | Abema (Chisato 10066631: 17/AB/162 + corazón + old tower 7 años + Anzai prima Enoki; Takina 10068257: 16/A/160 + Kyoto + Fuki + Wakayama Himawari/Sora; staff 10192703; temas 10192672) | Animate Times (AT2 Imigimuru, AT4 cast, AT12 trío, AT13 dúo, abr-2025 shorts) | Febri (int1 Adachi, int2 Imigimuru: amarillo/twins/Chisato-peina/Mika-afro/Kurumi-retake/Mizuki-gafas, int3 Asaura) | Dengeki Online 202504 (Adachi×Imigimuru) | Telasa/TheTV (sinopsis) | NicoNico (shorts).
 **EN:** anibase (Chisato: Libra, Detonics, Marui ×2, Akashi, cine con Majima) | fandom | IMDb E13 (EN cast) | ANN | Crunchyroll | Reddit | doublesama | xenodude | MAL.
-**Estimadas (*) honestas:** Mika 48, Mizuki 27, alturas Mika/Mizuki/Kurumi, cumples Mika/Mizuki, sangre Mika/Mizuki/Kurumi, Mika kanji, Chisato atashi/boku detalles. TODO marcado * (no canon). Si JP confirma, actualizar v2.1.
+**Estimadas (*) honestas (auditoría 8-oct: Mika 48/7-13/O + Mizuki 27/6-5/O CONFIRMADOS por JP wiki, * retirada):** alturas Mika/Mizuki/Kurumi, sangre Kurumi, edad Kurumi, kanji Mika (¿tiene?), Chisato atashi/boku detalles. TODO con * = no canon. Si JP confirma resto, actualizar v2.1.
 **Índice:** v1.0 base → v2.0 fichas 1–5 (ficha/apariencia/personalidad/trasfondo/habilidades/equipo/relaciones/arco/frases/análisis/voz/fandom/semillas) → §6 comparativa → Apéndices A–AG (hanakotoba, seiyū, voz+escenas, outfits, checklist, timeline cumples, psicología, debates, merch, diseños, transcripciones, apodos, día típico, pesadillas, combate, menú, música, sangre/horóscopo, pronombres, errores, dúos, evoluciones, regalos, tops, popularidad, frases20, localización, encuentros Jesús, líneas vida, fuentes).
 *FIN v2.0 — 03-personajes-principales.md — meta ~130 kB — Verificar wc -c — Ale 2026-10-07 — Siguiente 04-personajes-secundarios (~90 kB) cuando ordenes. ❤️💙*
 

@@ -323,7 +323,7 @@ Ver documento 06 para guía de peregrinación de 60+ spots.
 - **中原ミズキ Nakahara Mizuki: 小清水亜美 Koshimizu Ami** (veterana: Ryuko Kill la Kill, etc.). Voz de hermana mayor decepcionante pero fiable.
 - **クルミ Kurumi / Walnut: 久野美咲 Kuno Misaki** (voz aguda, hacker malhumorada adorable).
 - **ミカ Mika: さかき孝輔 Sakaki Kōsuke** (voz grave cálida, padre/café manager).
-- Antagonistas: **真島 Majima: 松岡禎丞 Matsuoka Yoshitsugu** (Kirito SAO, ¡mismo universo Adachi!), **ロボ太 Robota: 榊原優希 Sakakibara Yūki**, **吉松シンジ Yoshimatsu Shinji: (actor veterano)**, **楠木 Kusunoki, 春川フキ Harukawa Fuki, 乙女サクラ Otome Sakura, 蛇ノ目エリカ Janome Erika, 姫蒲 Himegama, アラン・アダムス Alan Adams, ジン Jin** + civiles (43 total, ver doc 04).
+- Antagonistas: **真島 Majima: 松岡禎丞 Matsuoka Yoshitsugu** (Kirito SAO, ¡mismo universo Adachi!), **ロボ太 Robota: 榊原優希 Sakakibara Yūki**, **吉松シンジ Yoshimatsu Shinji: 上田燿司 Ueda Yōji** (JP wiki; Alan + cliente + ex-amigo Mika), **楠木 Kusunoki, 春川フキ Harukawa Fuki, 乙女サクラ Otome Sakura, 蛇ノ目エリカ Janome Erika, 姫蒲 Himegama, アラン・アダムス Alan Adams, ジン Jin** + civiles (43 total, ver doc 04).
 - Radio Rikoraji: Anzai + Wakayama, guion/dirección 長田宏 Osada Hiro, 27 emisiones (8-jul-2022–24-mar-2023, viernes, YouTube Aniplex + plataformas).
 
 ### 15.2 Inglés (Bang Zoom! Burbank para Aniplex of America)
