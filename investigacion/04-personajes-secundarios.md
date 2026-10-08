@@ -635,3 +635,25 @@ Majima (6: show/duelo/jugo/caída/prófugo/sonrisa) + SFX eco. Yoshi (5: amable/
 
 ---
 *FIN v2.2 — 04-personajes-secundarios.md — meta ~90 kB — Verificar wc -c — Ale 2026-10-07 — Siguiente 05-diferencias-anime-novelas (~90 kB). ❤️💙*
+
+---
+
+## Apéndice V. Escenas corales secundarios (multi-personaje — voz + ritmo grupo)
+**V.1 Briefing asalto E11 (Kusunoki+Fuki+Sakura+Erika+tropa):** El mapa brillaba. Kusunoki golpeó Enkuboku con el dedo: —Entramos por tres. Fuki, punta. Sakura, segunda. Erika… —Miró a la temblorosa—. …¿Puedes? Erika respiró. Pensó en E1. En el rehén. En Takina castigada por su culpa. —Puedo —dijo, y fue la primera vez que sonó soldado—. Por Takina. Por todas. Fuki sonrió 0.5mm (versión Fuki del 1mm Takina). —Bien. ¡Muévanse!
+**V.2 Purga E12 (HQ+Kusunoki+asistente):** —La orden dice… —la asistente no podía—. …"desechar". Kusunoki tomó el papel. Lo dobló. Lo guardó. —Preparen retirada —dijo—. …Y té. Mucho té. —¿…Té, señora? —Para cuando vuelvan. Mis niñas vuelven con frío. (La asistente lloró tecleando. El té salió perfecto. Nadie lo tomó. Todos vivieron.)
+**V.3 Visita S6 extendida (Fuki+Erika+café):** La campanilla sonó. Fuki entró tiesa. Erika, escondida tras ella. Mika hizo SFX de pasos + sonrisa de faro: —¡Bienvenidas! —…Venimos a… inspeccionar —mintió Fuki—. …Y a… —A comer parfait —terminó Erika, roja—. …Perdón. —¡APROBADAS! —gritó Chisato, abrazando a las dos—. ¡Inspección de abrazos: PASADA! Takina sirvió té. A Fuki. Sin palabras. Fuki lo tomó. Sin palabras. Todo dicho.
+**V.4 Jack cabina E10 extendida (Majima+Robota+tropa):** —¡Al aire! —Robota temblaba de gloria—. ¡Toda… toda la ciudad nos ve! Majima se miró en la cámara apagada. Se acomodó el verde. —Escúchame, Japón —susurró, y luego GRITÓ—. ¡ESCÚCHENME! (Tropa: silencio religioso. Robota: "…es bueno. Maldita sea, es bueno.")
+**V.5 Fiesta N24 (TODOS, propuesta):** La mesa larga no cupo: unieron tres. Kusunoki trajo té. Jin trajo silencio. Fuki trajo… ¿sonrisa? (Sakura la fotografió: evidencia.) Erika trajo disculpa-cero (solo risa). Abe trajo gato (el del caso N7). Obaa-chan bendijo. Mangaka dibujó en vivo (Jesús: VIVE). Oyabun brindó. Sakura rió. Kurumi transmitió (Robota: "felicidades…malditos"). LilyBell-1 miró de lejos (duda). Majima… rumor (¿pasó?). Yoshi… rezo (Chisato, bajito). Mika alzó taza: —Por los que están. —¡Y LOS QUE VIENEN! —gritó Chisato—. ¡Y JESÚS! ¡FELIZ CUMPLE! (Hana. Todos. Hasta Takina cantó. 3mm de sonrisa. Récord.)
+
+## Apéndice W. Objetos secundarios (fichas leitmotiv)
+- **Maletín corazón (Yoshi):** cuero, frío, vida. N9 foto, N20 verdad, N24 vacío (vida entregada). Símbolo: equipaje-vida.
+- **Radio LilyBell:** estática + órdenes + 1 duda N20 (apagada a medias). Símbolo: sistema que escucha.
+- **Té Kusunoki:** mapas + taza + "vuelvan". N18 sirve a Jesús (rito). Símbolo: mando-mamá.
+- **Puño Fuki:** golpe E1 → transfusión E13 (misma mano, distinto acto). N16 evalúa (aprieta hombro Jesús: "firme"). Símbolo: fuerza que sostiene.
+- **Cámara Saori:** foto E1 (verdad) → boda N7 (felicidad). Jesús fotógrafo torpe (hereda). Símbolo: mirar.
+- **Pluma mangaka:** mata E7 → VIVE N17 (redención tinta). Símbolo: autor elige vida.
+- **Anillo oyabun:** sello + deuda. N13 muestra a Jesús ("palabra"). Símbolo: honor.
+- **Libreta Abe:** casos + gato N7. Símbolo: calle.
+- **Charm extra (búho falso N17):** broma Kurumi → susto Jesús → lección Alan. Símbolo: precio.
+- **Sake Jin? (NO: Jin toma café):** café negro + silencio. N24 brindis (habla 4 palabras: "Buena… familia. Cuídenla."). Símbolo: gris bueno.
+*FIN W — FIN v2.3 — Verificar ~90 kB — Ale 2026-10-07 — Siguiente 05 (~90 kB). ❤️💙*
