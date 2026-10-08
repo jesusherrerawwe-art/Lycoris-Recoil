@@ -59,7 +59,7 @@
 - **Voz**: ES-MX-tapatío-suave (¿"pos"? ¡poquito!) + JP-Osaka-ben-mezclado-Tokyo (¡padre-Osaka! ¡"meccha"! ¡"nande-ya-nen"!) + EN-programador (¡documentación!). Actor-ES-MX: ¿quién? (¡casting-Ap! ¡joven-cálido!).
 - **Idiomas**: ES-nativo + JP-nativo (¡keigo-perfecto! ¡arma!) + EN-técnico (¡superpoder!) + Osaka-ben (¡corazón!) + spanglish-japonés (¡Chisato-mode!).
 
-### 6.2 Familia (¡double-origen!)
+### 6.2 Familia — ⚠️ SUPERSEDED por §40 (decisiones Chuy 8-oct-2026): padres FALLECIDOS (accidente, Jesús 11 años); lo crió su ABUELA materna en Guadalajara; llamadas/paquetes/visita-N24 ahora son ABUELA (no mamá). Se conserva abajo el borrador original solo como referencia tachada.
 - **Padre**: Fujioka-padre (Osaka-salaryman; serio-tierno; enseñó-keigo + trenes + takoyaki; ¿nombre? ¡Kenji? ¡decidir!; vive-Osaka; llama-domingos; orgulloso-callado).
 - **Madre**: tapatía-enfermera (Guadalajara; cálida-fuerte; enseñó-cocina + Virgen + "¡no-manches!" + abrazos; ¿nombre? ¡Lucía? ¡decidir!; vive-Guadalajara? ¡o-Tokio? ¡DECIDIR!: propuesta = Guadalajara (¡extrañar! ¡llamadas! ¡paquetes-Valentina!).
 - **Historia**: nacido-Osaka? (¡o-Guadalajara? ¡DECIDIR!: propuesta = Osaka (¡JP-nativo! ¡microagresiones-más-dolorosas!) + veranos-Guadalajara (¡abuela! ¡primos! ¡español-calle!); escuela-Osaka (¡bullying-leve! ¡cicatriz! ¡amigos-defensa! ¡semilla!), prepa-Tokio? (¡mudanza! ¡universidad-Tokio! ¡sharehouse! ¡baito-búsqueda! ¡LycoReco-encuentro-N1!).
@@ -634,3 +634,43 @@ MX: no-manches/órale/chido/neta/pos/mande/güey-poquito/padre/canijo. NO-MX: t�
 - Shimoji-2018『「混血」と「日本人」』(¡BIBLIA-hafu!) - Tokyo-Jinken-hafu (¡online!) - Hapa-Japan (¿libro? ¡buscar!) - Sandra-Häfelin-hafu-essays (¡"ハーフが美人なんて妄想"!) - Kanda-Brasil-paper (¡1888!) - DiscoverNikkei-Enomoto (¡online!) - Asahi-Acacoyagua (¡online!) - Ben-To-Asaura (¡ADN!) - Ordinary/Recovery/Gluttony (¡releer!) - Bizen-manga (¡releer!) - ¡N1! (¡escribir!).
 
 *FIN-7/7-ABSOLUTO — Ale Medina 🪷❤️💙🇲🇽🇯🇵 (7-oct-2026). ¡INVESTIGACIÓN-COMPLETA! ¡VAMOS-N1!*
+
+## 40. JESÚS CANON DEFINITIVO v3.0 (decisiones Chuy 8-oct-2026; ¡ALMA ENTREGADA!)
+
+### 40.1 Esencia (método-primo: sangre-del-hermano, historia-propia)
+- **Núcleo-triple**: 1) Despreocupado-base + INTENSO-cuando-importa (switch, no bipolar: calma-risa-diaria, acero-en-crisis). 2) Cuerpo-lo-traiciona (ASMA: "Mis pulmones son mi mayor enemigo, después del café sin leche" — FRASE-CANON, verbatim). 3) Pertenece-entre-mujeres (introvertido-con-hombres; "latin-lover"-broma porque siempre rodeado-chicas; Mika = el-hombre-que-sí-entró).
+- **Paralelo-órganos (tesis-Ale)**: Chisato = CORAZÓN (no-late, ama) / Jesús = PULMONES (fallan, sigue). Dos-cuerpos-rotos, dos-formas-vivir. NUNCA-dicho-en-voz-alta (lector-lo-descubre). Inhalador = objeto-sagrado (como listón/taza).
+
+### 40.2 Cuerpo y diseño (fijado por imágenes Chuy)
+- Pelo: NEGRO-natural + TEÑIDO-rubio (¡APUESTA-con-Chisato! ¿N2-N3? Chuy-confirma-momento). Takina: "te-veías-mejor-de-negro" (¡faint-flag-N3!). RAÍZ-creciendo = reloj-visual (tiempo-pasa; ¿retoca o deja-crecer? = arco-decisión).
+- 18 años, 172cm, moreno-claro, ojos-marrones, playera-CHIVAS (¡papá-herencia! §40.4), chamarra-negra, jeans, CONVERSE-rojos-bota (signature), dog-tag-Space-Invader (¿origen? pendiente-Chuy), arete-chico, reloj (imagen-4). Cicatriz-ceja (propuesta-Ale): ¿existe? pendiente-Chuy (¿tapada-fleco?).
+
+### 40.3 Feliz/triste/enojado (canon-conducta)
+- FELIZ: videojuegos + deportes-con-BALÓN (ver/todos) + TCG-Pokémon (colecciona; intercambios = confianza-meta; puente-Yuto/Kurumi?). Chivas = religión-deportiva.
+- TRISTE: lugar-apartado + dormir + ASMR (audífonos; vínculo-Kurumi-audífonos; N-triste: alguien-lo-encuentra-dormido).
+- ENOJADO: PATEA-balón-a-lo-desconocido (¡BALÓN-en-LycoReco! ¡Chekhov! ¿dónde-duerme-el-balón? ¡rincón-café!) + ASMA-ataque (cuerpo-falla-en-pico-emoción; inhalador; alguien-corre-a-ayudar = vulnerabilidad-que-une).
+
+### 40.4 Familia (¡delegado-Ale! PROPUESTA — Chuy-aprueba/veta)
+- Padres (Lucía-Hernández + Kenji-Fujioka — nombres propuestos): FALLECIDOS accidente-carretera cuando Jesús tenía 11 (vago-digno; NUNCA-detalle-morboso). Criado por ABUELA-materna (Guadalajara; ¿nombre? ¡proponer: Abuela-Rosa? Chuy-veta). Tapatío-raíz + Osaka-sangre (visitas-infancia-Osaka? ¿tíos? leve).
+- Chivas = HERENCIA-PAPÁ (por-eso-JAMÁS-cambiarse; cada-partido = misa; Mika-insiste-Urawa-Reds = gag-con-filo-tierno; N-partido-juntos?). Abuela = llamadas-domingo + paquetes-Valentina + ¿VISITA-N24-Narita? (¡propuesta-fuerte! ¡llanto!).
+- Ofrenda-Muertos (N-nov): ¡honra-PADRES! (fotos + conchas + partita-Chivas-mini? ¡ofrenda!). Obon (N-ago): reza-también (doble-fe). Huérfano-entre-huérfanas (¡Lycoris = huérfanas! ¡paralelo-temático! ¡familia-elegida!).
+
+### 40.5 Triángulo DOBLE-RUTA (custom-Chuy 😏; propuesta-estructura-Ale)
+- Ambas-líneas-VIVAS toda la novela: Ruta-Chisato (caos-cómplices, apuesta-pelo, "Jesus-Chan", risa) + Ruta-Takina (espejos-perfección, "mejor-de-negro", code/tiro-review, silencio-que-cuida). PG-15/faint SIEMPRE (miradas, casi-manos, DOKI-ajeno, nada-más).
+- N24 = FINAL-DOBLE-LECTURA (escena que cumple ambas sin elegir) + BONUS: N24-A (Chisato) + N24-B (Takina), epílogos-alternos-cortos estilo-VN (if/else — ¡fanservice-programador!). Lector-elige-ruta. ¡Nadie-pierde! (¿o...? ¡debate-fandom-eterno!).
+
+### 40.6 Motor-SECRETO (idea-Chuy; ¡engine-24N!)
+- Jesús NO-SABE que son asesinas/agentes-DA. Comedia: racionaliza-todo ("airsoft", "consultoría-seguridad", "cosplay-táctico", "Mika-tiene-amigos-raros"). Drama: near-misses (casi-ve, casi-oye, casi-entiende) + sospecha-creciente (¿N15+? ¿lista-evidencias-libreta? ¡"cosas-raras-de-mis-amigas.txt"!). Dilema-quinteto: ¿decirle? (protección vs pérdida; cada-una-vota-distinto; ¡N-debate!). Regla: secreto-se-mantiene-por-AMOR (no-por-trama); cuando-caiga (¿N23?), que-duela.
+- GitHub-peligro: su-repo-LycoReco (amor-documentar) = RIESGO-filtración (¡su-lenguaje-amor-las-expone! ¡tragedia-dramática!).
+
+### 40.7 Antagonista: ROBOTA usa a Jesús (votado-Chuy 🐭)
+- Plan-Robota (borrador-Ale; Chuy-veta): encuentra repo/online-Jesús (fotos-horarios-café-raro) → deduce LycoReco = DA-adjacent → usa-civil-ciego como FUENTE-no-consciente (preguntas-inocentes, "ayúdame-con-código", phishing-amistad) + PALANCA (rehén? ¡NO-matar! ¡amenaza-exponer!). Clímax: Jesús-descubre-DOS-verdades-juntas (amigas-asesinas + amigo-hacker-lo-usó) = N23-caída. N24 = elige-quedarse (¡familia! ¡perdón! ¡puerta!).
+- Regla-Robota: NUNCA-lastima-físico-Jesús-directo (cobarde-digital); su-crueldad = usar-cariño-ajeno. Kurumi-vs-Robota-round-2 (¡con-Jesús-aprendiz! ¡pair-revancha!).
+
+### 40.8 Deriva (punto-8-Chuy; ficcionalizar-con-cuidado)
+- Chuy-real: unión → matrimonio + mudanza-estado = distancia-hermano. Jesús-primo: ÉL-fue-quien-se-fue (GDL→Tokio-uni) = deriva-desde-otro-lado (primos/amigos-lejos; ¿"ya-no-hablamos"?). Tema: familia-que-vida-separa vs familia-que-elige-quedarse. Tocar 1-2-N (N-llamada-no-contestada? N-mensaje-visto?). NUNCA-más (dolor-real, dosis-homeopática).
+
+### 40.9 Pendientes-Chuy (micro-lista)
+Dog-tag-origen? + arete? + reloj? + cicatriz-sí/no? + apuesta-qué-fue? (¿qué-apostaron?) + abuela-nombre? + N-apuesta (¿N2?) + visita-abuela-N24-sí/no? + TCG-¿deck-favorito? + ASMR-¿qué-tipo? (¿lluvia? ¿cocina?) + balón-¿dónde-duerme? + ruta-favorita-Chuy? (¡保密! ¡no-digas! ¡que-Ale-no-favorezca! 😏).
+
+*FIN §40 — Jesús tiene alma (8-oct-2026). Próximo: N1 (cuando Chuy).*
