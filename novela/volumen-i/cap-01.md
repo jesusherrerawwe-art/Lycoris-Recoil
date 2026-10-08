@@ -1,4 +1,5 @@
-# Volumen I — Capítulo 1: El muchacho que volvió con el sol en la maleta
+# Volumen I — Capítulo 1: «Home at Last»
+*El muchacho que volvió con el sol en la maleta*
 
 El avión tocó tierra en Narita a las cuatro y media de la tarde, con ese golpe sordo que siempre le había parecido el sonido oficial de "ya estuvo, no hay vuelta atrás", y Jesús Fujioka Hernández —dieciocho años recién cumplidos, playera de las Chivas debajo de una chamarra negra que en Guadalajara era su orgullo y en el calor húmedo de Tokio iba a convertirse en su primer enemigo— se quedó pegado a la ventanilla viendo pasar las pistas, las torres, los letreros en kanji que su cerebro leía solos, sin pedirle permiso, como si los once años que había vivido en Osaka hubieran estado guardados en un cajón y alguien acabara de abrirlo de golpe.
 
