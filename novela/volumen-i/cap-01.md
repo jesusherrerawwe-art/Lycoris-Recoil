@@ -297,7 +297,7 @@ Se durmió pensando en parfaits, en ojos rojos, en un espasmo de felicidad negad
 
 No sabía —no podía saber— que acababa de entrar a la familia más ruidosa, más peligrosa y más maravillosa de Tokio.
 
-No sabía que la regla número tres iba a cambiar su vida.
+No sabía que la regla número tres iba a cambiar su vida para siempre.
 
 Todavía no.
 
