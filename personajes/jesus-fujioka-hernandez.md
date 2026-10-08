@@ -79,4 +79,5 @@ Chisato: "Jesus-Chan" (día-1; posesión-cariñosa) → ¿"Jesús"-serio-UNA-vez
 **Veto-Ale (di NO y cae):** nombres-padres (Lucía/Kenji) · cicatriz-origen · apuesta-videojuego-N2 · dog-tag-primo · arete-Tokio-solo · reloj-detenido + reparación-N24 · deck-Normal + sobre-papá · ASMR-lluvia-trigger→sanación · balón-rincón-tablón · rosario-pared · primo-sin-nombre (¿lo-nombras-tú?) · semilla-Takina + baile-Chisato (¡podrían-intercambiarse! ¡doble-ruta-equilibrio!) · parfait-tres-cucharas-N24 · Mizuki-línea-exacta · Robota-cameo-línea.
 **Hilos-abiertos:** colocación-A/B (N21-N24) · N-apuesta-exacto · deck-ace-carta (¿cuál?) · TCG-con-Yuto (¿N?) · maneja-Mizuki-enseña (¿N?) · traje-compras (¿N?) · cita-desastre-Mizuki (¿N?) · testigo-redactado (¡guardar-N23/bonus!) · abuela-Narita-sí/no · N24-A/N24-B-contenido · guitarra (¿toca? ¡pendiente-viejo!) · anime-favorito (¿cuál?).
 
-*FIN v1.0 — Jesús Fujioka Hernández tiene LORE DEFINITIVO (8-oct-2026). Próximo: estructura-N1-N24 o N1-directo (Chuy-elige).*
+*FIN v1.0 — Jesús Fujioka Hernández tiene LORE DEFINITIVO (8-oct-2026).*
+*RESTRUCTURA (8-oct, orden-Chuy): 2 VOLÚMENES × 13 capítulos (26 + bonus A/B). Mapeo/argumento = SOBRE SELLADO (planificacion/sobre-sellado.md — ¡CHUY NO ABRIR!). Modo 🤐: cero spoilers hasta la RUTA DOBLE (fin Vol-II, trabajo-conjunto).*
