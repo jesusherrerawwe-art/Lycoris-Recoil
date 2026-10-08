@@ -674,3 +674,27 @@ MX: no-manches/órale/chido/neta/pos/mande/güey-poquito/padre/canijo. NO-MX: t�
 Dog-tag-origen? + arete? + reloj? + cicatriz-sí/no? + apuesta-qué-fue? (¿qué-apostaron?) + abuela-nombre? + N-apuesta (¿N2?) + visita-abuela-N24-sí/no? + TCG-¿deck-favorito? + ASMR-¿qué-tipo? (¿lluvia? ¿cocina?) + balón-¿dónde-duerme? + ruta-favorita-Chuy? (¡保密! ¡no-digas! ¡que-Ale-no-favorezca! 😏).
 
 *FIN §40 — Jesús tiene alma (8-oct-2026). Próximo: N1 (cuando Chuy).*
+
+## 41. EL DESCUBRIMIENTO (idea-Chuy 8-oct-2026 😈; ¡bomba-N21/N23!)
+
+### 41.1 Mecánica (canon-bloqueado)
+Broma-inocente → catástrofe: Jesús quiere poner fondo-vergonzoso en tablet-Kurumi-desbloqueada (¡gag-establecido! ¡ella-siempre-la-deja!) → notificación/archivo-abierto → NO-puede-dejar-de-leer → descubre TODO (Lycoris + DA + Alan + Majima + E10-E13-resumen) ÉL-SOLO (Chisato/Takina-pierden-chance-de-contar). Regla: 3-beats (risa → silencio → manos-tiemblan). Nadie-lo-ve-leer (¡secreto-doble! ¡él-ahora-también-guarda!).
+
+### 41.2 El archivo (borrador-contenido; Chuy-veta)
+"Informe-saneamiento-DA: incidente-vial (km __, hace-7-años). Civiles-fallecidos: 2 (Fujioka-K / Hernández-L). Testigo-Lycoris: [REDACTADO]. Acción: encubrimiento-estándar (procedimiento-civiles). Firma: [mando-DA]." ¿Por-qué-Kurumi-lo-tiene? PROPUESTA: lo-hackeó-hace-tiempo ("reviso-a-todos-los-que-entran" — paranoia-protectora) + lo-ENTERRÓ (proteger-Jesús; ¡la-menor-carga-lo-más-pesado!). Alternativa: archivo-Mika (¡peor!). Chuy-elige-quién-guardaba (¿Kurumi? ¿Mika? ¿ambos?).
+
+### 41.3 REGLAS-DE-ORO (para-que-N24-sobreviva)
+- R1 Jesús-sigue-NORMAL (¡NO-sangre-especial! ¡NO-Alan-bebé! ¡NO-destino!). Accidente = accidente-REAL (mala-suerte, lluvia, carretera). DA solo LIMPIÓ (había-operativo-cerca / testigo-Lycoris-presente / protocolo). La-herida = MENTIRA, no-causa.
+- R2 Las-chicas-NO-sabían (Chisato/Takina/Mizuki-inocentes; eran-niñas-hace-7-años: ¡matemática! Chisato-10, Takina-9). Culpables-omisión: ¿Mika? (¿vio-archivo? ¿procesó-saneamiento?) y/o Kurumi (enterró-archivo). "Familia"-plural = Mika + Kurumi + institución (¡suficiente-para-doler, perdonable-para-N24!).
+- R3 Testigo-redactado = MISTERIO (¿Fuki? ¿Erika? ¿Jin? ¿desconocida? ¡NO-decidir-aún! ¡gancho!). Revelar-tarde (¿N23? ¿bonus?).
+- R4 Asma-escala: shock → crisis-frecuentes (¡NO-romantizar! ¡inhalador! ¡médico! ¡Mika-hospital-paralelo-E9-Chisato!). Regla-médica: estrés-dispara-ataques (real); inhalador-se-acaba-peor-momento (¡UNA-vez! ¡tensión!). Recuperación = arco-físico (¿nuevo-tratamiento? ¿respirar-con...? ¡N24-corre-sin-parar? ¡símbolo!).
+
+### 41.4 Colocación (propuesta-Ale; Chuy-elige)
+- Opción-A (recomendada): N21-descubre (broma) → N22-finge-normal (¡actúa! ¡peor!) → N23-explota (confrontación + ¿huye? + crisis-asma-calle + ¿quién-lo-encuentra?) → N24-elige-quedarse.
+- Opción-B: todo-N23 (descubre + explota-mismo-N; más-brutal, menos-suspenso).
+- Pregunta-clave: ¿HUYE? (propuesta: SÍ-corre (¡con-asma! ¡peligro!) → colapsa-parque/banca-Kinshicho (¡ESPEJO-E1!) → ¿Takina-lo-encuentra? (¿ruta?) ¿Chisato? (¿ruta?) ¡DOBLE-RUTA-decide-quién! 😏).
+
+### 41.5 Fusión-Robota (cuidado-no-sobrecargar)
+Robota NO-sabe-archivo (¡separar-hilos!). PERO: detecta-Jesús-frágil-online (¿postea-menos? ¿repo-silencio?) → acelera-plan (¡villano-huele-sangre!). N23-doble-golpe: verdad-familia + verdad-Robota-misma-noche (¡noche-más-larga!). Regla: un-N-respira-entre-golpes (¡lector-también-respira!).
+
+*FIN §41 — Chuy-guionista 😈 (8-oct-2026). Pendiente: quién-guardaba + testigo? + huye? + colocación-A/B.*
