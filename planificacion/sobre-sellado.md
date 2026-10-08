@@ -14,3 +14,4 @@ V2: 14 "Aftermath" · 15 "Fever Dream" · 16 "Make a Wish" · 17 "Need to Know" 
 (REGLA: títulos crípticos; jamás revelar lista completa a Chuy antes de tiempo.)
 **HITO-Chuy (8-oct): al terminar cap-6, REVISIÓN COMPLETA de caps 1-6 (errores canon, continuidad, español limpio). Promesa inolvidable: incidente-Chisato-pelirroja jamás se repite.**
 **REGLA-FORMATO (8-oct, queja-Chuy): diálogos con LÍNEA VACÍA entre turnos (markdown pega renglones). Caps 1-3 reformateados. Desde cap-4, escribir pre-espaciado. Revisar formato en hito-cap6.**
+**FEEDBACK-Chuy (8-oct): "No me está gustando la historia." Preguntas-diagnóstico omitidas (skip). NO escribir cap-5 hasta recibir dirección. Esperar sus palabras. Posibles rumbos (sin asumir): ritmo/tono/Jesús/acción.**
