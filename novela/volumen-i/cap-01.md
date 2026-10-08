@@ -251,7 +251,7 @@ Cerró el binder. Se quitó el reloj parado y lo dejó junto a la foto del acuar
 
 —Ya llegué —les dijo a las tres personas que reían en la foto—. Tengo trabajo. Se llama LycoReco. Creo... creo que me va a gustar aquí.
 
-Se puso los audífonos. Lluvia grabada + lluvia real en la ventana, estéreo natural. Y se durmió pensando en parfaits, en ojos rojos, en un espasmo de felicidad negado tres veces, en un hombre amable que había dicho *familia* antes que *equipo*, y en unas tuberías viejas que pateaban muebles en el segundo piso.
+Se puso los audífonos. Lluvia grabada + lluvia real en la ventana, estéreo natural. Y se durmió pensando en parfaits, en ojos rojos, en un espasmo de felicidad negado tres veces, en un hombre amable que había dicho *familia* antes que *equipo*, en unas tuberías viejas que pateaban muebles en el segundo piso, y en que mañana a las nueve empezaba su primer turno en el lugar más ruidoso y más feliz que había pisado en siete años.
 
 No sabía —no podía saber— que acababa de entrar a la familia más ruidosa, más peligrosa y más maravillosa de Tokio.
 
