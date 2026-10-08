@@ -577,3 +577,61 @@ Majima (6: show/duelo/jugo/caída/prófugo/sonrisa) + SFX eco. Yoshi (5: amable/
 | N23–N24 | TODOS (fiesta doble + Hana2 + carta): Fuki sonríe, Sakura ríe, Erika perdona, Kusunoki té, Jin brindis, Abe aplaude, Obaa-chan bendice, LilyBell? (1 mira lejos), Robota? (hackea felicitación), Majima? (rumor), Yoshi (reza) | FIESTA |
 **Regla:** 2–3 secundarios por cap (fondo vivo); TODOS en N24 (final coral). Ninguno opaca quinteto+Jesús.
 *FIN R — Verificar ~90 kB — Ale 2026-10-07 — Siguiente 05 (~90 kB). ❤️💙*
+
+---
+
+## Apéndice S. Tesis por secundario (qué representa cada uno — brújula temática)
+- **Majima = verdad sin amor** (grita lo correcto con métodos crueles). Lección Jesús: decir verdad también necesita mercy.
+- **Yoshi = amor sin respeto** (ama su obra, no su hija). Lección: amar ≠ poseer.
+- **Robota = talento sin familia** (segundo porque solo compite). Lección: Kurumi gana porque pertenece.
+- **Himegama = lealtad sin juicio** (obedece ciego, cae). Lección: elegir > obedecer (Takina E13).
+- **Alan = ayuda con precio** (beca que cobra alma). Lección: gratis-caros vs familia-gratis.
+- **Kusunoki = sistema con corazón** (manda y sabotea). Lección: cambiar desde dentro es posible.
+- **Fuki = fuerza que aprende ternura** (golpea→transfunde). Lección: líder sirve.
+- **Sakura = valor sin experiencia** (entra, la hieren, ríe). Lección: crecer duele y vale.
+- **Erika = culpa que se perdona** (rehén→luchadora). Lección: errores no definen.
+- **LilyBell = orden sin rostro** (pared blanca). Lección: dudar humaniza (N20).
+- **Jin = gris funcional** (mata y es amable). Lección: mundo no es blanco/negro; elige café (tibio bueno).
+- **Matsushita = muerte digna** (último viaje feliz). Lección: irse bien es ganar.
+- **Saori = civil que mira** (foto = verdad). Lección: ciudadanos importan (por ellos pelean).
+- **Abe = calle pragmática** (papeles vs chicas). Lección: sistema necesita café.
+- **Mangaka = autor espejo** (¿matar? ¡VIVIR!). Lección: historias eligen vida (N17 Jesús vive).
+- **Oyabun = honor viejo** (deuda paga). Lección: palabra vale (Jesús promete N24).
+- **Onuma/HQ = imagen vacía** (500M tapadera). Lección: mentiras caras, verdad gratis (familia).
+- **Menores = comunidad** (abuela, niño, CA, prensa). Lección: mundo vivo (fondo con alma).
+**Meta-tesis novela:** 17 lecciones → 1 carta N24 (Jesús las lista; Chisato llora; Takina: "…ineficiente. Hermoso.").
+
+## Apéndice T. Fantasía casting ES-MX (voces latinas hipotéticas — juego serio + guía tono)
+> Hipótesis Ale (no oficial; sirve para dirigir tono ES-MX en novela + futuro fandub).
+- **Majima:** voz showman grave-joven (tipo actor doblaje villano carismático: risa + filo). Tono: stand-up oscuro.
+- **Yoshi:** ejecutivo sesentero aterciopelado (paternal falso). Tono: comercial banco siniestro.
+- **Robota:** gamer agudo chillón (tilt). Tono: stream tóxico.
+- **Himegama:** secretaria helada (cero vibrato). Tono: GPS asesina.
+- **Kusunoki:** generala ronca cálida (mando-mamá). Tono: directora escuela militar que hornea.
+- **Fuki:** líder joven dura (grito + quiebre). Tono: capitana equipo que llora en regadera.
+- **Sakura:** cachorra brillante (risa fácil). Tono: porrista que dispara.
+- **Erika:** bajita temblorosa→firme (arco audible). Tono: disculpa que se para.
+- **Jin:** susurro grave (3 palabras). Tono: ASMR letal.
+- **Matsushita:** abuelo papel china (frágil-feliz). Tono: despedida dulce.
+- **Abe:** poli cansado (café frío). Tono: turno doble.
+- **Mangaka:** otaku hiperventilado (plazos). Tono: deadline eterno.
+- **Oyabun:** padrino slow (pausas). Tono: respeto.
+**Regla:** tono > imitación (no copiar actores; capturar acto).
+
+## Apéndice U. Preguntas abiertas por secundario (hilos S2 + respuesta parcial novela)
+- **Majima:** ¿dónde? ¿con quién habla E13? ¿nuevo plan? Novela: rumor N18 (¿visto en…?) + pesadilla Jesús N12. NO resolver.
+- **Yoshi:** ¿Alan lo venga? ¿familia? Novela: carta Alan N23 (amenaza velada) + rezo Chisato N24. NO revivir.
+- **Robota:** ¿contratado por…? ¿supera a Walnut? Novela: duelo N11 (pierde) + felicitación hackeada N24 (¿paz?). NO vencer.
+- **Himegama:** ¿vive? ¿vuelve? Novela: leyenda 8-seg (N9/N20). NO traer.
+- **Alan:** ¿Adams quién? ¿nuevo child? ¿observa Jesús? Novela: charm falso N17 + rumor N21 + carta N23. NO mostrar.
+- **Kusunoki:** ¿recupera mando? ¿protege a todas? Novela: ficha N18 + té N24 (paz parcial). SÍ mostrar (aliada).
+- **Fuki:** ¿líder? ¿perdona del todo? Novela: evalúa N16 + respeta N20 + sonríe N24. SÍ cerrar (sonrisa).
+- **Sakura:** ¿crece? ¿First? Novela: juegos N15 + fiesta N24 (16?). SÍ celebrar.
+- **Erika:** ¿supera culpa? Novela: POV N8 + perdón N24. SÍ cerrar (parfait).
+- **LilyBell:** ¿disueltos? ¿dudan? Novela: susto N18 + duda 1 N20. PARCIAL (semilla S2).
+- **Jin:** ¿se retira? ¿Mizuki? Novela: mentor N13 + omiai N18 + brindis N24. PARCIAL (veta lenta sigue).
+- **Civiles:** ¿vidas? Novela: cameos felices N24 (boda Saori? + manga vive + oyabun brinda + Obaa bendice). SÍ celebrar.
+**Regla hilos:** villanos/sistemas ABIERTOS (S2 real manda); familia/civiles CERRADOS-felices (nuestro regalo cierra con amor).
+
+---
+*FIN v2.2 — 04-personajes-secundarios.md — meta ~90 kB — Verificar wc -c — Ale 2026-10-07 — Siguiente 05-diferencias-anime-novelas (~90 kB). ❤️💙*
