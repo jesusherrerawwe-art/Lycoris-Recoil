@@ -4,7 +4,7 @@
 
 El domingo amaneció temprano en Kinshicho, y Jesús Fujioka Hernández amaneció con él, porque su cuerpo todavía no decidía en qué país vivía y lo despertó a las seis de la mañana con hambre de chilaquiles y nostalgia de gallos ajenos.
 
-Se quedó un rato mirando el techo, escuchando la ciudad despertar —un camión, una persiana, un cuervo opinando de todo—, y después se levantó, se puso la ropa deportiva que no usaba desde Guadalajara, agarró su balón del rincón y salió a caminar. Domingo. Día libre. Sin turno, sin ensayos de servilletas, sin tratos peligrosos. Solo él, su balón y un barrio que todavía no conocía.
+Se quedó un rato mirando el techo, escuchando la ciudad despertar —un camión, una persiana, un cuervo opinando de todo—, y después se levantó, se puso la ropa deportiva que no usaba desde Guadalajara, agarró su balón del rincón y salió a caminar. Domingo. Día libre. Sin turno, sin servilletas, sin tratos peligrosos. Solo él, su balón y un barrio que todavía no conocía.
 
 El parque de Kinshicho estaba a diez minutos, y olía a pasto mojado y a mañana. Jesús entró botando el balón, buscando un claro de tierra donde tirar unos tiros... y se detuvo en seco, porque el claro ya estaba ocupado por algo que no entendió.
 
@@ -36,6 +36,8 @@ Jesús, rojo, tieso, feliz, trató de tocar el suelo con las palmas y llegó a l
 
 —¡Bien! ¡Mañana a los tobillos! ¡Pasado al suelo! ¡En un mes, bailarín! —decretó Obaa.
 
+Hubo un ejercicio —el de los brazos en círculo grande, con giro de cintura— que a Jesús le salió fatal tres veces seguidas. A la cuarta, la señora de al lado, sin decir palabra, le agarró suavemente los brazos y se los movió ella misma, despacio, marcándole el camino en el aire. Una, dos, tres veces. Después lo soltó, asintió, y siguió con lo suyo como si nada. Jesús hizo el ejercicio bien a la quinta. Nadie aplaudió. Nadie dijo nada. Pero la señora le guiñó un ojo sin dejar de moverse, y Jesús sintió que acababa de recibir una clase entera de algo que no era gimnasia. Algo sobre cómo se enseña. Algo sobre cómo se cuida. Sin palabras. Con las manos.
+
 Cuando la melodía terminó —diez minutos exactos, con un "¡gracias por su esfuerzo!" final del locutor que a Jesús le sonó a abrazo—, la formación se rompió en risas y plática, alguien sacó un termo de té, alguien repartió sellos en las tarjetas de los niños —porque en verano, le contaron, los niños coleccionaban sellos de asistencia, uno por mañana—, y Obaa agarró a Jesús de la mano y le estampó un sello en el dorso. Una florecita rosa.
 
 —No tienes tarjeta —dijo, muy seria—. Te sello la mano. Mañana traes tarjeta. Te consigo una.
@@ -52,15 +54,13 @@ Después de los sellos vino el té. Porque la pandilla de la gimnasia no se iba 
 
 Y Jesús, tomando té de más en una banca del parque a las siete de la mañana, rodeado de abuelitos que lo habían adoptado en diez minutos de gimnasia, pensó que Tokio coleccionaba familias para él sin pedirle permiso. Y que no le importaba. Ni tantito.
 
-Y Jesús se guardó la mano sellada en el bolsillo como un tesoro, pensando que llevaba cuatro días en Tokio y ya tenía deudas de flan, pelo falso, y una florecita rosa en la mano que valía más que todo.
-
 ---
 
 Después de la gimnasia, Obaa lo llevó de tour por la calle comercial, y Jesús entendió que el barrio de Kinshicho funcionaba como un pueblo chiquito disfrazado de ciudad enorme: todos se conocían, todos se cuidaban, y todos —TODOS— ya sabían quién era él.
 
-—¡Este es el mexicano del café! —lo presentaba Obaa en cada tienda, empujándolo por los hombros—. ¡Mírenlo! ¡Rubio! ¡Perdió un trato! ¡Chisato lo trasquiló!
+—¡Este es el mexicano del café! —lo presentaba Obaa en cada tienda, empujándolo por los hombros—. ¡Mírenlo! ¡Rubio! ¡Perdió un trato!
 
-—¡No me trasquiló! ¡Me tiñó! ¡Hay diferencia! —protestaba Jesús, mientras las tenderas se reían y le daban cosas: una mandarina en la frutería ("¡para el camino!"), un pan dulce en la panadería ("¡prueba y me dices!"), un descuento misterioso en la tienda de discos ("¡precio de vecino!").
+—¡No perdí! ¡Bueno, sí perdí! ¡Pero con honor! —protestaba Jesús, mientras las tenderas se reían y le daban cosas: una mandarina en la frutería ("¡para el camino!"), un pan dulce en la panadería ("¡prueba y me dices!").
 
 En la pescadería, el dueño —un señor de brazos tatuados y delantal manchado— lo miró de arriba abajo y asintió una vez.
 
@@ -76,17 +76,13 @@ En la pescadería, el dueño —un señor de brazos tatuados y delantal manchado
 
 —...gracias, señor —dijo Jesús, comiéndose el camarón, pensando que en ese barrio hasta los regaños venían con comida.
 
-La última parada fue la peluquería —un local chiquito con sillones viejos, fotos amarillentas y olor a talco—, donde el peluquero, un señor de bigote fino y tijeras en el bolsillo, vio entrar a Jesús, vio el pelo rubio, y se llevó las manos a la cabeza.
+La última parada fue la peluquería, donde el peluquero vio el rubio, examinó las puntas disparejas y se llevó las manos a la cabeza.
 
-—¡¿QUIÉN TE HIZO ESTO?! —gritó, corriendo a examinarle las puntas—. ¡¿Las puntas disparejas?! ¡¿El tono miel sin matizar?! ¡¿QUIÉN?!
+—¡¿QUIÉN TE HIZO ESTO?! ¡¿Las puntas?! ¡¿El tono sin matizar?!
 
 —Una... amiga —dijo Jesús, encogiéndose—. Fue un trato. Perdí.
 
-—¿Un trato? —El peluquero lo miró. Miró a Obaa. Obaa asintió, confirmando—. ...bueno. Por trato, se perdona. —Le revolvió el pelo con cariño profesional—. Escúchame, mexicano: está mal hecho, pero te queda bien. Tienes cara de rubio. Ven en dos semanas. Te emparejo las puntas gratis. Precio de vecino. Y dile a tu amiga que si quiere aprender, yo enseño. Con videos de verdad. No como los suyos.
-
-—¿Cómo sabe que vio videos? —preguntó Jesús, impresionado.
-
-—Mijo —dijo el peluquero, volviendo a su silla—. Llevo cuarenta años en esto. Las puntas disparejas SIEMPRE son de video. Sin excepción.
+—¿Un trato? —El peluquero lo miró. Miró a Obaa. Obaa asintió—. ...bueno. Por trato, se perdona. Escúchame, mexicano: está mal hecho, pero te queda bien. Tienes cara de rubio. Ven en dos semanas. Te emparejo las puntas gratis. Precio de vecino.
 
 —¿Ves? —dijo Obaa, feliz, mientras seguían caminando—. Este barrio cuida a los suyos. Y tú —le pellizcó el cachete— ya eres de los nuestros. El café te adoptó, y el barrio adopta con el café. Así funciona. Sin papeles. Sin trámite. Con mandarinas.
 
@@ -150,15 +146,15 @@ A media lección llegó la mamá de Yuto con una caja de bolas de arroz envuelta
 
 —No es nada —murmuró Jesús, rojo hasta el tinte—. ...¿quiere aprender usted también? Tengo un mazo de sobra en la mochila. Siempre traigo uno de sobra. Por si acaso.
 
-—¡POR SI ACASO QUÉ? —preguntó Yuto.
+—¿POR SI ACASO QUÉ? —preguntó Yuto.
 
 —¡Por si acaso aparece un alumno nuevo! —dijo Jesús, y la mamá de Yuto se rio y aceptó, y por media hora fueron cuatro alumnos y un maestro feliz en el pasto del parque, con bolas de arroz de recreo y el sol de verano pintándolo todo de domingo.
 
 Después de las cartas vino el futbol. Porque el de la gorra vio el balón, el del raspón gritó "¡RETAS!", Yuto gritó "¡EL MEXICANO ES PORTERO!", y Jesús —que llevaba una semana sin jugar, que traía el balón extrañándolo desde Guadalajara— dijo que sí antes de pensarlo.
 
-Jugaron en el claro de tierra: tres niños contra Jesús de portero... más dos niños más que se sumaron corriendo ("¡nosotros contra el mexicano!"), más un señor de la gimnasia que pasaba y se puso de árbitro voluntario ("¡yo pito! ¡sin manos! ¡los grandes no corren, solo tapan!").
+Jugaron en el claro de tierra: cinco niños contra Jesús de portero, más un señor de la gimnasia que pasaba y se puso de árbitro voluntario ("¡yo pito! ¡sin manos! ¡los grandes no corren, solo tapan!").
 
-Y Jesús tapó. Tapó como en los viejos tiempos: adivinando, volando, riéndose. Los niños tiraban con todo y él volaba a todo, y cada atajada era un grito colectivo, y cada gol en contra era una fiesta mayor. "¡OTRA VEZ! ¡OTRA VEZ!" Era portero. Era feliz. Era domingo.
+Y Jesús tapó. Tapó como en los viejos tiempos: adivinando, volando, riéndose. Los niños tiraban con todo y él volaba a todo, y cada atajada era un grito colectivo, y cada gol en contra era una fiesta mayor. Era portero. Era feliz. Era domingo.
 
 Al minuto veinte, sintió el aviso: el pecho apretándose apenas, el aire entrando un poquito menos. Conocía la señal desde niño. Pidió tiempo —"¡medio tiempo! ¡agua para todos!"—, se sentó en la banca, tomó agua despacio, y con disimulo total —de espaldas, como quien se rasca la nuca— usó su inhalador. Una aspiración. Dos. Respiró. Contó. El pecho se aflojó. Todo bien. Protocolo de siempre.
 
@@ -168,7 +164,7 @@ Nadie lo notó. Nadie, excepto Obaa, que miraba el partido desde su banca con su
 
 Y entonces, en el minuto veinticinco, con el marcador empatado y los niños exhaustos y felices, pasó Chisato.
 
-Pasó corriendo por el camino del parque —bolsas de compras en las dos manos, listón rojo volando, coleta rebotando— y frenó en seco al ver el partido. Se quedó mirando cinco segundos. Dejó las bolsas en una banca. Se quitó los zapatos.
+Pasó corriendo por el camino del parque —bolsas de compras en las dos manos, listón rojo volando— y frenó en seco al ver el partido. Se quedó mirando cinco segundos. Dejó las bolsas en una banca. Se quitó los zapatos.
 
 —¡VOY! —gritó, entrando al claro descalza—. ¡YO JUEGO! ¡JESUS-CHAN, TÁPAME ESTA!
 
@@ -180,7 +176,7 @@ Tiró. El balón salió recto... y a medio camino se curvó —imposible, hermos
 
 Silencio en el claro. Los niños boquiabiertos. El árbitro con el silbato a medio camino. Jesús en el suelo, todavía estirado, mirando el balón, mirando a Chisato, mirando el balón.
 
-—¡GOOOL! —gritó Chisato, corriendo con los brazos abiertos—. ¡GOL DE LA RUBIA! ¡INVENCIÓNESE LA REPETICIÓN! ¡JESUS-CHAN, CASI LA TAPAS! ¡CASI!
+—¡GOOOL! —gritó Chisato, corriendo con los brazos abiertos—. ¡GOL DE LA RUBIA! ¡JESUS-CHAN, CASI LA TAPAS! ¡CASI!
 
 —¿...cómo hiciste eso? —preguntó Jesús, levantándose, sacudiéndose la tierra—. ¿Juegas en liga o qué?
 
@@ -190,29 +186,19 @@ Y se fue corriendo, bolsas al viento, listón volando, doblando la esquina a una
 
 Todavía no.
 
-—¡PENALES! —gritó el de la gorra, recuperando el mando—. ¡Para cerrar! ¡Cinco penales! ¡Si el mexicano tapa tres, es el mejor portero del parque!
-
-—¿Y SI NO? —preguntó Jesús.
-
-—¡TAMBIÉN! ¡PERO CON MENOS GRITOS!
-
-Tiraron cinco penales. Jesús tapó dos —volando, raspándose el codo, levantando polvo—, adivinó otros dos pero no llegó, y el último... el último lo tiró Yuto. El más chico. El alumno de cartas. Agarró el balón, lo puso en el suelo con manos temblorosas, miró la portería de mochilas, miró a Jesús, y respiró hondo.
+Para cerrar, los niños pidieron penales. Tiraron cinco. Jesús tapó dos —volando, raspándose el codo, levantando polvo—, adivinó otros dos pero no llegó, y el último... el último lo tiró Yuto. El más chico. Agarró el balón, lo puso en el suelo con manos temblorosas, miró la portería de mochilas, miró a Jesús, y respiró hondo.
 
 —Tú puedes —le dijo Jesús desde la portería, bajito—. Tranquilo. Como las cartas. Conoce tu tiro, quiérelo bien, y juégalo en el momento exacto.
 
 Yuto tiró. El balón salió bajito, pegado al suelo, a la esquina. Jesús se tiró... y no llegó. Por un dedo. Por un dedo nada más.
 
-—¡GOOOL! —el parque entero gritó —niños, árbitro, señoras de la banca, hasta el cuervo opinó—, y Yuto corrió a abrazar a Jesús, que seguía en el suelo, riéndose, lleno de tierra.
+—¡GOOOL! —el parque entero gritó —niños, árbitro, señoras de la banca—, y Yuto corrió a abrazar a Jesús, que seguía en el suelo, riéndose, lleno de tierra.
 
 —¡Te gané! ¡TE GANÉ!
 
-—¡Me ganaste! —confirmó Jesús, abrazándolo—. ¡Los ordinarios también ganan! ¡Te lo dije! ¡PRIMER GOL OFICIAL! ¡HAY QUE FESTEJARLO!
+—¡Me ganaste! —confirmó Jesús, abrazándolo—. ¡Los ordinarios también ganan! ¡Te lo dije! ¡El portero invita los helados! ¡TRADICIÓN DEL PARQUE!
 
-—¿Cómo se festeja? —preguntó Yuto.
-
-—Con helado —dictaminó Jesús—. El que mete gol invita... ¡no, espera! ¡El portero invita! ¡Yo invito! ¡Helado para todos! ¡El perdedor paga! ¡TRADICIÓN DEL PARQUE!
-
-—¡TRADICIÓN DEL PARQUE! —gritaron los niños, y fueron por helados, y Jesús pagó feliz, pensando que perder por un dedo contra un niño de seis años era la mejor derrota de su vida. Mejor que la de las maquinitas. Mejor que todas.
+—¡TRADICIÓN DEL PARQUE! —gritaron los niños, y fueron por helados, y Jesús pagó feliz, pensando que perder por un dedo contra un niño de seis años era la mejor derrota de su vida. Mejor que la de las maquinitas. Mejor que todas. Yuto brindó con su helado chocándolo contra el suyo, solemnemente, como los adultos brindaban con copas, y Jesús brindó de vuelta, solemnemente, pensando que acababa de fundar una tradición con un niño que hacía tres días no existía en su mundo.
 
 ---
 
@@ -236,7 +222,7 @@ Le sirvió guiso de carne con papa —calientito, dulce-salado, con el sabor ese
 
 —Todo el sentido —dijo Obaa—. Todas las abuelas cocinamos lo mismo en idiomas distintos. Se llama "quédate un rato más". Come. Come más.
 
-Después de comer, Jesús le arregló el teléfono: le borró cuarenta aplicaciones que no usaba ("¿esto qué es?" "No sé, mijo, se instaló solo" "Esto es un juego de granjas, Obaa" "¡YO NO TENGO GRANJA!"), le agrandó la letra al máximo ("¡AHORA SÍ VEO! ¡PARECE PERIÓDICO!"), le puso foto de perfil nueva (una que le tomó en ese momento, con el pulgar arriba y el guiso detrás) y le enseñó a hacer videollamadas con su nieto.
+Después de comer, Jesús le arregló el teléfono: le borró las aplicaciones que no usaba ("¿esto qué es?" "No sé, mijo, se instaló solo" "Esto es un juego de granjas, Obaa" "¡YO NO TENGO GRANJA!"), le agrandó la letra al máximo ("¡AHORA SÍ VEO! ¡PARECE PERIÓDICO!"), le puso foto de perfil nueva (una que le tomó en ese momento, con el pulgar arriba y el guiso detrás) y le enseñó a hacer videollamadas con su nieto.
 
 —¡PRUÉBALA! —ordenó, marcando él mismo—. ¡Llámale! ¡Ahorita!
 
@@ -250,7 +236,7 @@ Obaa le llamó a su nieto. El nieto contestó —un joven cansado, de traje, en 
 
 —¡Mi mexicano! —dijo Obaa, jalando a Jesús para que saliera en pantalla—. ¡Míralo! ¡Rubio! ¡Come mucho! ¡Me arregló todo! ¡Saluda, mexicano!
 
-—¡Hola! —saludó Jesús, apenado, saludando a la pantalla—. Soy... soy Jesús. Del café. Cuido... bueno, su abuela me cuida a mí, la verdad. Pero yo le cuido el teléfono.
+—¡Hola! —saludó Jesús, apenado, saludando a la pantalla—. Soy... soy Jesús. Del café. Su abuela me cuida a mí, la verdad. Pero yo le cuido el teléfono.
 
 El nieto se rio. Se rio de verdad, y se le quitó un poco lo cansado de la cara.
 
@@ -298,7 +284,7 @@ Silencio al otro lado. Un silencio largo. Peligroso.
 
 —Se llama Obaa. Me dio mandarinas, me selló la mano con una florecita, me dio de comer guiso, y me regaló un amuleto para los pulmones. Es como tú, pero en japonés.
 
-—¡YO SOY LA ORIGINAL! —protestó Abuela Rosa—. ¡LA DE GUADALAJARA! ¡LA DEL POZOLE! ¡LA QUE TE CRIO! ¡QUE NO SE TE OLVIDE!
+—¡YO SOY LA ORIGINAL! —protestó Abuela Rosa—. ¡LA DE GUADALAJARA! ¡LA DEL POZOLE! ¡LA QUE TE CRIÓ! ¡QUE NO SE TE OLVIDE!
 
 —¡Nunca se me olvida! ¡Tú eres la original! ¡Ella es... la edición japonesa! ¡Coleccionable!
 
@@ -322,6 +308,8 @@ Jesús se rio bajito y contestó:
 
 Antes de dormir, se miró la mano: la florecita rosa seguía ahí, apenas borrada por el agua y el día. Le tomó foto y se la mandó a Abuela Rosa: *"Mi primer sello japonés. Soy alumno de gimnasia. Tengo 18 años y me sellan la mano."* La respuesta llegó con tres emojis de risa: *"¡MI NIETO EL BAILARÍN! ¡Guárdala! ¡Esa mano no se lava en una semana!"* —"¡ABUELITA, QUÉ ASCO!" —"¡ES TU PRIMERA MEDALLA JAPONESA! ¡SE RESPETA!"
 
+Antes de acostarse, tocó el amuleto con un dedo —tela bordada, salud, protección, aire limpio— y después el rosario —madera gastada, Guadalajara, Abuela Rosa—. Dos protecciones. Dos abuelas. Dos países cuidándolo mientras dormía. Pensó que era el muchacho más custodiado de Tokio, y se rio bajito, y se sintió —por primera vez en cuatro días, por primera vez en siete años— completamente, ridículamente a salvo.
+
 Guardó el teléfono. Se puso los audífonos —esa noche sí había lluvia afuera, finita, de domingo—, y se durmió pensando en gimnasias de radio y sellos de florecita, en mandarinas y camarones, en cartas normales que ganaban partidas, en atajadas y tiros con curva imposibles, en guisos que sabían a "quédate un rato más", en videollamadas prometidas, y en un amuleto bordado colgado junto a un rosario tapatío.
 
 Dos casas. Dos abuelas. Un balón. Tres flanes de deuda. Una mano sellada.
@@ -335,4 +323,4 @@ No sabía nada. Todavía no.
 *(Continuará...)*
 
 ---
-*Volumen I · Capítulo 4 de 13 · 8-oct-2026 · 🤐*
+*Volumen I · Capítulo 4 de 13 (reescrito v2) · 8-oct-2026 · 🤐*
