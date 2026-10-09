@@ -2,17 +2,17 @@
 
 *Nada o húndete*
 
-El tercer día de Jesús Fujioka Hernández en Tokio empezó con una crisis existencial frente al espejo, una crisis de puntualidad en la puerta del café, y una crisis de identidad en la barra. En ese orden. Antes de las nueve de la mañana.
+El tercer día de Jesús Fujioka Hernández en Tokio empezó con una crisis frente al espejo y otra crisis en la puerta del café. Antes de las nueve de la mañana. Récord personal.
 
-La crisis existencial: el rubio seguía ahí. Se había dormido esperando despertar negro otra vez —como si el tinte hubiera sido un sueño— y no. Rubiel. *Güero.* Parecía otro. Se tocó el pelo, suspiró, y decidió que lo mejor era caminar como si hubiera sido rubio toda la vida. *Seguridad,* pensó. *Todo es seguridad. Abuela Rosa dice que hasta los elotes se ven bien con seguridad.* No estaba seguro de que Abuela Rosa hubiera dicho eso alguna vez, pero sonaba a ella, y eso bastaba.
+La del espejo: el rubio seguía ahí. Se había dormido esperando despertar negro otra vez —como si el tinte hubiera sido un sueño— y no. Rubiel. Se tocó el pelo, suspiró, y decidió caminar como si hubiera sido rubio toda la vida. *Seguridad*, pensó. *Todo es seguridad. Abuela Rosa dice que hasta los elotes se ven bien con seguridad.* No estaba seguro de que Abuela Rosa hubiera dicho eso alguna vez, pero sonaba a ella, y eso bastaba.
 
-La crisis de puntualidad: llegó a las ocho cincuenta y nueve con cuarenta segundos. Takina lo miró. Miró el reloj. Lo volvió a mirar.
+La de la puerta: llegó a las ocho cincuenta y nueve con cuarenta segundos. Takina lo miró. Miró el reloj. Lo volvió a mirar.
 
 —*Apenas* —dictaminó—. Otra vez. El cariño sigue bajando.
 
 —Buenos días a ti también —dijo Jesús, poniéndose el delantal—. ¿Hoy qué toca?
 
-—Hoy toca turno real —dijo Takina, y su voz sonó vagamente ominosa—. Ayer fue entrenamiento. Hoy hay clientes de verdad. Hora pico de la mañana. Pedidos de verdad. Propinas de verdad. Quejas de verdad.
+—Hoy toca turno real —dijo Takina, y su voz sonó vagamente ominosa—. Ayer fue entrenamiento. Hoy hay clientes de verdad. Hora pico de verdad. Pedidos de verdad. Quejas de verdad.
 
 —¿Quejas?
 
@@ -26,13 +26,15 @@ Y entonces llegó la hora pico, y Jesús entendió que Takina no exageraba ni un
 
 El LycoReco de las nueve de la mañana era otro animal: oficinistas con prisa pidiendo café para llevar, señoras del barrio instalándose con el periódico, estudiantes desvelados pidiendo el desayuno de la casa —café con pan tostado y huevo, gratis el pan si llegabas antes de las once, tradición que Mika defendía como religión— y una fila en la puerta que no dejaba de crecer. Jesús tomó pedidos, cargó bandejas, repitió "¿con leche, verdad?" cuarenta veces, se equivocó de mesa tres veces, y sobrevivió. Apenas. Como todo lo suyo.
 
-—¡El rubio nuevo es rápido! —dijo una señora de pelo blanco y sonrisa arrugada, pellizcándole el cachete—. ¡Y guapo! ¡Mika, ¿de dónde sacaste a este niño?!
+—¡El rubio nuevo es rápido! —dijo una señora de pelo blanco y sonrisa arrugada, pellizcándole el cachete—. ¡Y guapo! ¡Mika, de dónde sacaste a este niño!
 
-—¡Del aeropuerto, Obaa! —gritó Chisato desde la barra—. ¡Viene en paquete de México! ¡Hay más, pero este fue el que pedimos!
+—¡Del aeropuerto, Obaa! —gritó Chisato desde la barra—. ¡Viene en paquete de México!
 
 —¡Pidan otro! —dijo la señora, y todo el café se rio, y Jesús se rio también, rojo hasta las orejas teñidas, pensando que los clientes de ese lugar trataban a los meseros como sobrinos y que eso —eso era exactamente lo que una casa debía sentirse.
 
-Después de Obaa vinieron los estudiantes desvelados —tres muchachos con ojeras de panda honorarias que pidieron el desayuno de la casa y se quedaron dormidos por turnos sobre la mesa, relevándose como guardias— y Jesús aprendió su primera lección de mesero veterano: nunca despiertes a un cliente dormido, solo ponle la cuenta cerca y espera. Después vino una pareja joven que discutía en susurros sobre a dónde ir de vacaciones, y Jesús, nuevo e ingenuo, les sugirió Guadalajara —"¡vayan a Guadalajara! ¡Hay mariachi y tortas ahogadas!"— y la pareja lo miró, se miró, y se echó a reír, y la discusión se acabó, y le dejaron propina doble con una notita: *gracias, mexicano, ya decidimos: vamos a Guadalajara.* Y después vino su primer error grave: llevó un café sin leche a la mesa equivocada, a una señora que lo miró como si le hubiera servido veneno.
+Después vino una pareja joven que discutía en susurros sobre a dónde ir de vacaciones, y Jesús, nuevo e ingenuo, les sugirió Guadalajara —"¡vayan a Guadalajara! ¡Hay mariachi y tortas ahogadas!"— y la pareja lo miró, se miró, y se echó a reír, y la discusión se acabó, y le dejaron propina doble con una notita: *gracias, mexicano, ya decidimos: vamos a Guadalajara.* Jesús guardó la notita en el bolsillo del delantal, junto a la tarjeta de reglas, y pensó que tal vez servir café también era una forma de viajar. De llevar a la gente a lugares. De traer lugares a la gente.
+
+Y después vino su primer error grave: llevó un café sin leche a la mesa equivocada, a una señora que lo miró como si le hubiera servido veneno.
 
 —¡Perdón! ¡Perdón! ¡Ahorita lo cambio! —Jesús voló a la barra, pálido—. ¡Takina! ¡Emergencia! ¡Llevé sin leche a la mesa cinco y era con leche para la mesa siete!
 
@@ -48,15 +50,13 @@ Y Jesús nadó. Corrigió las dos mesas, sonrió las dos sonrisas, y la señora 
 
 —¿Y esto?
 
-—Tu primer error oficial —dijo Takina—. Guárdala. Yo guardé la mía.
-
-—Y ante su cara de sorpresa, añadió, bajito—: ...rompí tres tazas mi primer día. Tres. No se lo digas a Chisato.
+—Tu primer error oficial —dijo Takina—. Guárdala. Yo guardé la mía. —Y ante su cara de sorpresa, añadió, bajito—: ...rompí tres tazas mi primer día. Tres. No se lo digas a Chisato.
 
 —¡¿Tú?! ¡¿La perfecta Takina?! ¡¿Tres tazas?!
 
 —Dos y media —corrigió Takina, digna—. Una ya estaba estrellada. Y si lo cuentas, te descuento del cariño hasta quedar en números negativos.
 
-Jesús guardó la servilleta en el bolsillo del delantal como un tesoro. Su primer error oficial. Enmarcable. Casi.
+Jesús guardó la servilleta en el bolsillo del delantal, junto a la notita de Guadalajara y la tarjeta de reglas. Su primer error oficial. Enmarcable. Casi.
 
 Fue a las diez cuando entró el cliente que casi le para el corazón.
 
@@ -72,15 +72,11 @@ El hombre lo miró de arriba abajo. Un segundo. Dos. Tres. Después dijo, con vo
 
 —¿El... el de siempre? —Jesús parpadeó—. Perdone, soy nuevo, no sé cuál es...
 
-—Parfait de chocolate. Extra crema. Y un café con leche.
-
-—El hombre entornó los ojos—. ¿Eres el mexicano?
+—Parfait de chocolate. Extra crema. Y un café con leche. —El hombre entornó los ojos—. ¿Eres el mexicano?
 
 —S-sí, señor.
 
-—Bienvenido.
-
-—Y entonces, rompiendo todas las leyes del universo, el hombre grande de traje oscuro y tatuaje sonrió. Una sonrisa dulce. De abuelo—. Mi nieta dice que los mexicanos son amables. No la decepciones.
+—Bienvenido. —Y entonces, rompiendo todas las leyes del universo, el hombre grande de traje oscuro y tatuaje sonrió. Una sonrisa dulce. De abuelo—. Mi nieta dice que los mexicanos son amables. No la decepciones.
 
 Jesús volvió a la barra caminando como sonámbulo.
 
@@ -100,11 +96,11 @@ Jesús llevó el parfait con las manos firmes a base de pura fuerza de voluntad,
 
 Cuando volvió a la barra, Chisato lo estaba esperando con una palmadita en la espalda que casi lo manda al suelo.
 
-—¡Sobreviviste al rincón! ¡Ya eres uno de nosotros! ¡Ahora te falta sobrevivir a...! —miró el reloj de la pared— ...¡uy! ¡Mi encargo! ¡Ya me voy! ¡Takina, te encargo el café! ¡Jesus-Chan, te encargo a Takina! ¡Mizuki, te encargo... nada! ¡No toques nada!
+—¡Sobreviviste al rincón! ¡Ya eres uno de nosotros! ¡Ahora te falta sobrevivir a...! —miró el reloj de la pared— ...¡uy! ¡Mi encargo! ¡Ya me voy! ¡Takina, te encargo el café! ¡Jesus-Chan, te encargo a Takina! ¡Mizuki, no toques nada!
 
 —¡¿Qué encargo?! —preguntó Jesús—. ¡¿A dónde vas?!
 
-—¡Secreto de la casa! —gritó Chisato, ya en la puerta, poniéndose una gorra—. ¡Vuelvo antes de la comida! ¡Si viene alguien preguntando por mí, no existo! ¡Si viene alguien preguntando por Takina, existe pero está ocupada! ¡Si viene Mizuki preguntando por alguien, ignórenla!
+—¡Secreto de la casa! —gritó Chisato, ya en la puerta, poniéndose una gorra—. ¡Vuelvo antes de la comida! ¡Si viene alguien preguntando por mí, no existo!
 
 —¡CHISATO! —gritaron Takina y Mizuki al mismo tiempo, pero la puerta ya se había cerrado, la campanita ya había sonado, y la rubia original del café ya iba corriendo calle abajo, rapidísimo, doblando la esquina como si la persiguieran. O como si persiguiera algo.
 
@@ -116,13 +112,13 @@ Jesús se quedó mirando la puerta.
 
 —¿Qué encargos?
 
-—De todo —dijo Mika, tranquilos—. Cuidado de niños. Compras. Ayuda a escuelas. Consejos de amor. Cosas perdidas. Este café hace de todo, Jesús. Café, dulces... y encargos. Ya te acostumbrarás.
+—De todo —dijo Mika, tranquilo—. Cuidado de niños. Compras. Ayuda a escuelas. Consejos de amor. Cosas perdidas. Este café hace de todo, Jesús. Café, dulces... y encargos. Ya te acostumbrarás.
 
 —¿Consejos de amor? —Jesús arqueó una ceja—. ¿Chisato da consejos de amor?
 
-—Malos —dijeron Mika, Takina y Mizuki al mismo tiempo, y todo el café se rio, incluida la señora Obaa, que gritó "¡PÉSIMOS!" desde su mesa, y Jesús decidió no preguntar más, porque algunas respuestas claramente dolían.
+—Malos —dijeron Mika, Takina y Mizuki al mismo tiempo, y todo el café se rio, incluida Obaa, que gritó "¡PÉSIMOS!" desde su mesa.
 
-Lo que sí preguntó, una hora después, cuando oyó un golpeteo rítmico y sordo viniendo de *abajo* —*pum... pum-pum... pum...*— como si alguien golpeara una pared acolchada en el sótano, fue:
+Lo que sí preguntó Jesús, una hora después, cuando oyó un golpeteo rítmico y sordo viniendo de *abajo* —*pum... pum-pum... pum...*— como si alguien golpeara una pared acolchada en el sótano, fue:
 
 —¿Están remodelando abajo?
 
@@ -130,9 +126,9 @@ Tres cabezas se voltearon hacia él. Mika. Takina. Mizuki. Al mismo tiempo. Con 
 
 —¡Remodelación! —dijeron los tres, demasiado rápido—. ¡Eterna! ¡No hagas caso!
 
-*Tuberías que patean muebles,* pensó Jesús, anotando mentalmente. *Remodelación eterna que golpea paredes. Encargos secretos a mitad del turno. Regla número tres.*
+*Tuberías que patean muebles*, pensó Jesús, anotando mentalmente. *Remodelación eterna que golpea paredes. Encargos secretos a mitad del turno. Regla número tres.*
 
-No le dio importancia. Todavía no. Estaba demasiado ocupado sobreviviendo a su primer turno real, y el turno real —como Takina había prometido— no perdonaba.
+No le dio importancia. Todavía no. Estaba demasiado ocupado sobreviviendo a su primer turno real, y el turno real —como Takina había prometido— no perdonaba. Pero esa noche, cuando se lavó las manos antes de dormir, el olor a café no se le quitó del todo. Se quedó ahí, bajito, entre los dedos. Y a Jesús le gustó. Le gustó oler a trabajo. Le gustó oler a algo que empezaba.
 
 ---
 
@@ -164,7 +160,7 @@ Jesús miró a Takina. Miró a Mizuki. Suspiró el suspiro de Suiza, el país ne
 
 —¿Qué qué? —Mizuki frunció el ceño—. ¿Padre? ¿Como papá?
 
-—Como "genial" —explicó Jesús—. En México, "padre" también significa "increíble". "¡Qué padre tu camisa!". "¡Qué padre el café!". "¡Qué padre...!".
+—Como "genial" —explicó Jesús—. En México, "padre" también significa "increíble". "¡Qué padre tu camisa!". "¡Qué padre el café!".
 
 —¡QUÉ PADRE! —gritó Mizuki, poniéndose de pie—. ¡Ya sé español! ¡Mika! ¡QUÉ PADRE TU CAFETERA!
 
@@ -204,11 +200,13 @@ Jesús subió la escalera de atrás con la bandejita en alto, el corazón latié
 
 Empujó la puerta con el hombro. Y entró a otro mundo.
 
-El cuarto de Kurumi —porque tenía que ser Kurumi, la leyenda del segundo piso, el misterio de la regla número tres— no era un cuarto. Era una cueva de tecnología y azúcar: tres monitores encendidos en un escritorio en forma de ele, cables por todas partes, una silla de ruedas con una chamarra de pingüino colgada del respaldo, latas vacías apiladas en pirámides, y papeles —papeles por todas partes, pegados en las paredes, en el monitor, en la puerta. Jesús alcanzó a leer algunos: *SIN CAFÉ NO HAY VIDA*, decía uno, con un pingüino dibujado. *Pasos pequeños, avances grandes*, decía otro. En un estante había libros gordos: *Programación*, *Ciberseguridad*, *Álgebra abstracta*, *Piezas de computadora*. Y de fondo, bajita, sonaba una música vieja —una balada japonesa antigua, lenta, con una voz de mujer que se quebraba bonito— que a Jesús le sonó, instantáneamente, inexplicablemente, a bolero. A domingo en casa de Abuela Rosa. A sobremesa larga.
+El cuarto de Kurumi —porque tenía que ser Kurumi, la leyenda del segundo piso, el misterio de la regla número tres— no era un cuarto. Era una cueva de tecnología y azúcar: tres monitores encendidos en un escritorio en forma de ele, cables por todas partes, una silla con una chamarra de pingüino colgada del respaldo, latas vacías apiladas en pirámides, y papeles pegados en las paredes, en el monitor, en la puerta. Jesús alcanzó a leer algunos: *SIN CAFÉ NO HAY VIDA*, decía uno, con un pingüino dibujado. *Pasos pequeños, avances grandes*, decía otro. En un estante había libros gordos: *Programación*, *Ciberseguridad*, *Álgebra abstracta*, *Piezas de computadora*.
+
+Y de fondo, bajita, sonaba una música vieja —una balada japonesa antigua, lenta, con una voz de mujer que se quebraba bonito— que a Jesús le sonó, instantáneamente, inexplicablemente, a bolero. A domingo en casa de Abuela Rosa. A sobremesa larga.
 
 Y en medio de todo, sentada en el suelo con las piernas cruzadas, con una sudadera de pingüino tres tallas más grande y el pelo negro recogido en dos chonguitos chuecos, había una niña. O una muchacha. O... algo en medio. Pequeñita, pálida, con ojeras de panda y ojos enormes y brillantes que lo miraron de arriba abajo con interés científico.
 
-—Así que tú eres el rubio —dijo Kurumi, señalándolo con la cucharita—. Acércate. Deja ver. —Jesús se acercó, obediente, y ella le examinó el pelo con cara de experta—. Falso —dictaminó—. Teñido. Raíz oscura. Chisato, ¿verdad? Solo Chisato deja las puntas disparejas. Siéntate. Come... no, no hay nada para ti. Solo hay flan para mí. Dame.
+—Así que tú eres el rubio —dijo Kurumi, señalándolo con la cucharita—. Acércate. Deja ver. —Jesús se acercó, obediente, y ella le examinó el pelo con cara de experta—. Falso —dictaminó—. Teñido. Raíz oscura. Chisato, ¿verdad? Solo Chisato deja las puntas disparejas. Siéntate. Dame.
 
 Le quitó la bandejita, se acomodó el flan en las rodillas como un tesoro, y le hizo un gesto con la barbilla hacia un cojín en el suelo. Jesús se sentó. La música vieja seguía sonando. Los monitores parpadeaban. El pingüino de la pared lo miraba.
 
@@ -234,7 +232,7 @@ Jesús se quedó helado.
 
 —Puedo —dijo Kurumi—. Y lo hice. Y te dejé un regalo: te cerré treinta pestañas y te actualicé todo. De nada. Me debes un flan. Este flan no cuenta, este flan era mío desde antes. Me debes OTRO flan.
 
-Jesús abrió la boca. La cerró. La volvió a abrir. Y entonces, sin poder evitarlo, se rio. Se rio a carcajadas, doblado en el cojín, porque la niña-muchacha-algo del segundo piso lo había hackeado, lo había insultado, lo había ayudado y le estaba cobrando, todo en menos de un minuto, con flan en la comisura de la boca.
+Jesús abrió la boca. La cerró. La volvió a abrir. Y entonces, sin poder evitarlo, se rio. Se rio a carcajadas, doblado en el cojín, porque la niña-muchacha-algo del segundo piso lo había invadido, lo había insultado, lo había ayudado y le estaba cobrando, todo en menos de un minuto, con flan en la comisura de la boca.
 
 —¡Me caes bien! —dijo, secándose los ojos—. ¡Eres terrible! ¡Me caes bien!
 
@@ -242,7 +240,7 @@ Jesús abrió la boca. La cerró. La volvió a abrir. Y entonces, sin poder evit
 
 —¿Qué?
 
-—De todo. Carreras, peleas, estrategia. Chisato solo juega peleas y solo gana. Takina no juega, estudia los juegos. Mizuki pierde y llora. Mika... Mika juega cartas españolas y hace trampa con la cara de bueno. Necesito un rival de verdad. ¿Juegas?
+—De todo. Carreras, peleas, estrategia. Chisato solo juega peleas y solo gana. Takina no juega, estudia los juegos. Mizuki pierde y llora. Necesito un rival de verdad. ¿Juegas?
 
 —Juego —dijo Jesús, y lo dijo con orgullo, porque por fin alguien en esa casa le preguntaba lo importante—. Desde niño. Con mi primo. Éramos... —dudó— ...somos equipo. Jugador uno y jugador dos.
 
@@ -252,11 +250,11 @@ Jesús abrió la boca. La cerró. La volvió a abrir. Y entonces, sin poder evit
 
 Kurumi lo miró con esos ojos enormes que veían demasiado. Después asintió una vez, como si hubiera archivado el dato en alguna carpeta interna, y dijo:
 
-—Entonces seré tu jugadora dos temporal. Temporal. Hasta que el uno se desocupe. Pero te advierto: soy mejor que tú. Soy mejor que todos. Soy... —se puso de pie en el cojín, dramática, señalándose a sí misma— ...¡la mejor! ¡Págame con flanes y te enseño!
+—Entonces seré tu jugadora dos temporal. Temporal. Hasta que el uno se desocupe. Pero te advierto: soy mejor que tú. Soy mejor que todos. ¡Págame con flanes y te enseño!
 
-—¡Trato! —dijo Jesús, riéndose—. ¡Pero yo no pierdo tan fácil como...!
+—¡Trato! —dijo Jesús, riéndose—. ¡Demuéstralo!
 
-—¡Demuéstralo! —Kurumi se tiró al teclado, los dedos volando—. ¡Una carrera! ¡Ahora! ¡Tú y yo! ¡Si me ganas, te perdono la deuda del flan! ¡Si pierdes, me debes DOS flanes más!
+—¡Una carrera! ¡Ahora! ¡Tú y yo! ¡Si me ganas, te perdono la deuda del flan! ¡Si pierdes, me debes DOS flanes más!
 
 —¡Eso es trampa! ¡No sé ni qué juego es!
 
@@ -266,13 +264,11 @@ El juego resultó ser de carreras espaciales —naves, asteroides, atajos imposi
 
 —¡¿QUÉ FUE ESO?! —gritó Jesús—. ¡¿Por ahí se puede pasar?!
 
-—¡Nadie lo sabía hasta hoy! ¡Lo acabo de inventar! ¡Soy la mejor! ¡Págame! ¡DOS FLANES MÁS! ¡deuda total: TRES FLANES!
+—¡Nadie lo sabía hasta hoy! ¡Lo acabo de inventar! ¡Soy la mejor! ¡Págame! ¡DOS FLANES MÁS! ¡Deuda total: TRES FLANES!
 
 —¡Eres imposible!
 
-—¡Soy adorable! —Kurumi anotó algo en un papel y lo pegó en el monitor: *RUBIO FALSO: debe 3 flanes.* —¡Ya estás en el sistema! ¡No hay escape! ¡Oye!
-
-—lo miró, de pronto seria, con esos ojos enormes—. Juegas bien. De verdad. El uno ese de Guadalajara... tiene suerte. Dile que se desocupe. Los equipos no esperan para siempre.
+—¡Soy adorable! —Kurumi anotó algo en un papel y lo pegó en el monitor: *RUBIO FALSO: debe 3 flanes.* —¡Ya estás en el sistema! ¡No hay escape! ¡Oye! —lo miró, de pronto seria, con esos ojos enormes—. Juegas bien. De verdad. El uno ese de Guadalajara... tiene suerte. Dile que se desocupe. Los equipos no esperan para siempre.
 
 Jesús se quedó callado. La música vieja seguía sonando. El pingüino de la pared lo miraba. Y por un momento, en esa cueva de monitores y azúcar, sintió que la niña de ojeras de panda acababa de verle algo por dentro —algo del primo, de la distancia, de la consola apagándose— y que le había recetado flanes y carreras en lugar de preguntas. Como doctora. Doctora terrible y adorable.
 
@@ -280,7 +276,7 @@ Jesús se quedó callado. La música vieja seguía sonando. El pingüino de la p
 
 —¡De nada, jugador dos permanente! —Kurumi volvió a su flan, feliz—. ¡Ahora lárgate, que tengo trabajo! ¡Digo! ¡Que tengo... cosas! ¡Cosas importantes! ¡FUERA!
 
-Se detuvo. Porque al reírse, al moverse, su mano había rozado el borde del escritorio. Y en el escritorio, junto al teclado principal, había una tableta. Una tableta encendida. Con un mapa de la ciudad lleno de puntitos de colores que se movían despacio, como luciérnagas ordenadas.
+Se rio, levantándose del cojín —y al moverse, su mano rozó el borde del escritorio. Y en el escritorio, junto al teclado principal, había una tableta. Una tableta encendida. Con un mapa de la ciudad lleno de puntitos de colores que se movían despacio, como luciérnagas ordenadas.
 
 —¿Eso es un videojuego nuevo? —preguntó, curioso, estirando un poco el cuello—. ¿Rastreas repartidores o...?
 
@@ -296,7 +292,7 @@ Se detuvo. Porque al reírse, al moverse, su mano había rozado el borde del esc
 
 La puerta se cerró. Jesús se quedó en la escalera, sonriendo solo como tonto, pensando que la leyenda del segundo piso era una niña con ojeras de panda que escuchaba boleros japoneses, comía flan como tesoro y lo había adoptado en diez minutos.
 
-*Familia,* pensó. *Dijo familia primero. Igual que Mika.*
+*Familia*, pensó. *Dijo familia primero. Igual que Mika.*
 
 Bajó las escaleras flotando. Todavía no sabía que acababa de conocer a la persona más lista —y más solitaria— de todo Tokio. Todavía no sabía que esa tableta prohibida, con su mapa de puntitos, iba a cambiar su vida para siempre.
 
@@ -312,7 +308,7 @@ Chisato volvió a las seis, justo para el cierre, entrando por la puerta de atr�
 
 —¡Hola! —dijo Yuto, tímido, escondiéndose medio cuerpo detrás de Chisato—. ¿...tienes juegos de cartas?
 
-—¿QUE SI TENGO QUÉ? —Jesús se arrodilló frente al niño, emocionadísimo—. ¡Tengo los mejores! ¡Mira! ¡Mañana te traigo mi mazo! ¡Te enseño a jugar! ¡Vas a ser el mejor del parque!
+—¿QUE SI TENGO QUÉ? —Jesús se arrodilló frente al niño, emocionadísimo—. ¡Tengo los mejores! ¡Mañana te traigo mi mazo! ¡Te enseño a jugar! ¡Vas a ser el mejor del parque!
 
 —¡Yay! —Yuto saltó, feliz—. ¡Chisato! ¡Me cae bien el mexicano!
 
@@ -320,15 +316,17 @@ Chisato volvió a las seis, justo para el cierre, entrando por la puerta de atr�
 
 La mamá de Yuto llegó diez minutos después —agitada, agradecida, llorando un poquito— y Chisato rechazó el pago del encargo con la mano ("¡la casa invita! ¡vuelvan por un parfait el sábado!"), y Jesús, viendo irse al niño que le decía adiós con las dos manos desde la puerta, pensó que los "encargos secretos" de ese café eran, al parecer, encontrar niños perdidos y rechazar dinero. Pensó que era lo más raro del mundo. Pensó que era lo más bonito del mundo. No sabía qué pensar primero.
 
+—¿Cómo se portó mi gemelo? —preguntó Chisato, despeinándolo—. ¡Takina! ¡Reporte!
+
 —Nadó como perro —informó Takina—. Pero nadó. Sobrevivió al rincón, sobrevivió a Obaa, sobrevivió a Kurumi. Tres de tres.
 
 —¡¿Sobrevivió a Kurumi?! —Chisato se volteó hacia Jesús, impresionada—. ¡¿Te adoptó?! ¡¿Ya?! ¡A Takina le tardó una semana!
 
-—Me hackeó, me insultó, me ayudó y me cobró —resumió Jesús—. En ese orden. En diez minutos. Creo que somos amigos ahora. Creo que le debo un flan.
+—Me invadió, me insultó, me ayudó y me cobró —resumió Jesús—. En ese orden. En diez minutos. Creo que somos amigos ahora. Creo que le debo tres flanes.
 
 —¡Esa es Kurumi! —Chisato lo abrazó por los hombros—. ¡Flan de bienvenida! ¡Flan de adopción! ¡Mika! ¡Cierra la caja y saca los flanes! ¡Cena de equipo! ¡Para celebrar que Jesus-Chan nadó!
 
-La cena de equipo resultó ser flanes, refrescos de melón con helado —verdes, espumosos, con la bola de vainilla derritiéndose encima, lo más bonito que Jesús había visto en un vaso— y sobras del desayuno recalentadas, comidas alrededor de la barra con el café ya cerrado y la luz ámbar bajita. Mika contó que el señor del rincón había preguntado por "el mexicano" al irse ("dijo que vuelvas mañana, y eso en su idioma es un abrazo"). Mizuki practicó su español ("¡QUÉ PADRE EL FLAN!" —"Mizuki." —"...está muy rico el flan. Por favor. Gracias. Buenas noches."). Chisato devoró dos flanes y la mitad del de Jesús cuando se distrajo ("¡impuesto de gemelos!"). Y Takina —Takina comió despacio, en silencio, puliendo mentalmente vasos invisibles, hasta que Jesús se levantó a llevar su plato vacío y ella, sin mirarlo, deslizó algo sobre la barra hacia él.
+La cena de equipo resultó ser flanes, refrescos de melón con helado —verdes, espumosos, con la bola de vainilla derritiéndose encima, lo más bonito que Jesús había visto en un vaso— y sobras del desayuno recalentadas, comidas alrededor de la barra con el café ya cerrado y la luz ámbar bajita. Mika contó que el señor del rincón había preguntado por "el mexicano" al irse ("dijo que vuelvas mañana, y eso en su idioma es un abrazo"). Mizuki practicó su español ("¡QUÉ PADRE EL FLAN!" —"Mizuki." —"...está muy rico el flan. Por favor. Gracias."). Chisato devoró dos flanes y la mitad del de Jesús cuando se distrajo ("¡impuesto de gemelos!"). Y Takina —Takina comió despacio, en silencio, hasta que Jesús se levantó a llevar su plato vacío y ella, sin mirarlo, deslizó algo sobre la barra hacia él.
 
 Un flan. Entero. Intacto. Con cucharita.
 
@@ -350,25 +348,21 @@ Jesús miró el flan. Miró a Takina. Miró a Chisato, que los observaba con los
 
 Caminó a casa bajo un cielo limpio, sin lluvia por primera vez en tres días, con las estrellas asomando entre los edificios y el estómago lleno de flan de sobra, y se sentía bien. Cansado hasta los huesos, con los pies molidos y las manos oliendo a café —pero bien. Había nadado. El señor del rincón volvía mañana. Obaa quería pedir otro mexicano. Kurumi lo había adoptado. Y Takina... Takina le había guardado un flan. *Sobró uno.* Claro. Sobró uno.
 
-En su cuarto de seis tatamis, se quitó los tenis rojos, se dejó caer en el suelo, y cambió su contraseña. La cambió de verdad —una larga, rara, imposible, la que Kurumi le había sugerido a gritos por la rejilla cuando bajaba ("¡MÍNIMO DOCE CARACTERES! ¡NÚMEROS! ¡SÍMBOLOS! ¡DIGNIDAD!")— y después abrió el juego de cartas sobre las rodillas, como ritual de noches grandes, y miró su carta favorita en la primera funda, la del sobre de domingo en Osaka, la que no se jugaba, la que se cuidaba.
+En su cuarto de seis tatamis, se quitó los tenis rojos, se dejó caer en el suelo, y cambió su contraseña. La cambió de verdad —una larga, rara, imposible, la que Kurumi le había sugerido a gritos por la rejilla cuando bajaba ("¡MÍNIMO DOCE CARACTERES! ¡NÚMEROS! ¡SÍMBOLOS! ¡DIGNIDAD!")— y después abrió el álbum de cartas sobre las rodillas, como ritual de noches grandes, y miró su carta favorita en la primera funda, la del sobre de domingo en Osaka, la que no se jugaba, la que se cuidaba.
 
 —Sigo cuidándola, pa —murmuró, como cada noche—. Oye. Hoy conocí a una niña que escucha boleros japoneses. Te caería bien. A mamá... a mamá le caería mejor. Le diría que se peine.
 
-Antes del mensaje desconocido, hubo una llamada conocida. Abuela Rosa, puntual como Takina, a las nueve en punto de Guadalajara —las once de Tokio, pero las abuelas no creen en los husos horarios.
+Antes del mensaje desconocido, hubo una llamada conocida. Abuela Rosa, puntual como Takina, a las nueve en punto de Guadalajara —las once de Tokio, pero las abuelas no creían en los husos horarios.
 
 —¿Mijo? ¿Cómo te fue? ¿Comiste? ¿El pelo sigue rubio o ya se te cayó de la vergüenza?
 
-—Sigue rubio, abuelita. Y me fue bien. Sobreviví a mi primer turno real. Atendí a un señor que daba miedo pero resultó abuelo. Una niña me hackeó y me adoptó. Y me guardaron un flan.
+—Sigue rubio, abuelita. Y me fue bien. Sobreviví a mi primer turno real. Atendí a un señor que daba miedo pero resultó abuelo. Una niña me invadió la computadora y me adoptó. Y me guardaron un flan.
 
-—¿Te guardaron un flan?
-
-—la voz de Abuela Rosa se puso sospechosamente interesada—. ¿Quién te guardó un flan, mijo?
+—¿Te guardaron un flan? —la voz de Abuela Rosa se puso sospechosamente interesada—. ¿Quién te guardó un flan, mijo?
 
 —Una... compañera. Dijo que sobró uno.
 
-—¡JA!
-
-—Abuela Rosa se rio tanto que se le cortó la voz—. ¡Mijo! ¡En ningún café del mundo sobra un flan! ¡Los flanes no sobran! ¡Esa niña te guardó el flan a propósito!
+—¡JA! —Abuela Rosa se rio tanto que se le cortó la voz—. ¡Mijo! ¡En ningún café del mundo sobra un flan! ¡Los flanes no sobran! ¡Esa niña te guardó el flan a propósito!
 
 —¡Abuelita!
 
@@ -401,6 +395,4 @@ No sabía nada. Todavía no.
 *(Continuará...)*
 
 ---
-
-*Volumen I · Capítulo 3 de 13 · 8-oct-2026 · 🤐*
-
+*Volumen I · Capítulo 3 de 13 (reescrito v2) · 8-oct-2026 · 🤐*
