@@ -284,7 +284,7 @@ Silencio al otro lado. Un silencio largo. Peligroso.
 
 —Se llama Obaa. Me dio mandarinas, me selló la mano con una florecita, me dio de comer guiso, y me regaló un amuleto para los pulmones. Es como tú, pero en japonés.
 
-—¡YO SOY LA ORIGINAL! —protestó Abuela Rosa—. ¡LA DE GUADALAJARA! ¡LA DEL POZOLE! ¡LA QUE TE CRIÓ! ¡QUE NO SE TE OLVIDE!
+—¡YO SOY LA ORIGINAL! —protestó Abuela Rosa—. ¡LA DE GUADALAJARA! ¡LA DEL POZOLE! ¡LA QUE TE CRIO! ¡QUE NO SE TE OLVIDE!
 
 —¡Nunca se me olvida! ¡Tú eres la original! ¡Ella es... la edición japonesa! ¡Coleccionable!
 
