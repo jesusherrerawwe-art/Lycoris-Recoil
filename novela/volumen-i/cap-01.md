@@ -34,7 +34,7 @@ Jesús se miró la muñeca. El reloj parado. La hora prohibida.
 
 —Y yo a ti, mi cielo. Cuídate los pulmones, que son tu mayor enemigo.
 
-—Después del café sin leche —dijo él, y los dos se rio, porque ese era su chiste, el de ellos, el de cada llamada, y colgaron.
+—Después del café sin leche —dijo él, y los dos se rieron, porque ese era su chiste, el de ellos, el de cada llamada, y colgaron.
 
 Guardó el teléfono. Respiró hondo —el aire del avión, reciclado y frío— y se tocó el inhalador por costumbre. Ahí estaba. Bolsa derecha. Siempre.
 
